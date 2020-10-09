@@ -107,13 +107,13 @@ Day 60 - 01:33 PST - N/A - Riot declared in portland
 Day 60 - 01:55 PST - N/A - after a 5-10ish minute pause there is more tear gas and full auto pepperballs
 Day 60 - 02:01 PST - N/A - Vietnam vet hounds feds and gets pepper sprayed (Mike Hastie born in 1945, army medic and bronze star recipient: unverified) https://twitter.com/andrewkimmel/status/1287319466120904704?s=20 and https://twitter.com/andrewkimmel/status/1287513674802802690?s=20
 ^not verified that this is him, but stuff does come up with that name that matches the story https://www.vietnamfulldisclosure.org/mike-hastie-photo-essay/ and https://www.counterpunch.org/2017/10/09/i-walked-pointless-in-vietnam/
-DAY 60 OS - 04:05 PST - N/A - round of pepper spray and flash bangs and tear gas. One caught riot ribs on fire, but was put out by a protester and CJ https://youtu.be/5q8CCoCThxE
-DAY 60 OS - 4:20 PST - N/A - Black man verbally confronts feds along a small group of protestors and media -- on Andrew Kimmel's stream
+DAY 60 - 04:05 PST - N/A - round of pepper spray and flash bangs and tear gas. One caught riot ribs on fire, but was put out by a protester and CJ https://youtu.be/5q8CCoCThxE
+DAY 60 - 4:20 PST - N/A - Black man verbally confronts feds along a small group of protestors and media -- on Andrew Kimmel's stream
 ^https://twitter.com/andrewkimmel/status/1287379745152184329
-DAY 60 OS - 05:24 PST - N/A - Feds toss more tear gas and fire some rubber bullets before finally heading back into the building.  https://youtu.be/5q8CCoCThxE
-DAY 60 OS - 14:24 PST - N/A - large BLM protest in Los Angeles at West LA Federal building. Protesters are now blocking a intersection. https://www.facebook.com/pg/MarchAndRallyLA/posts/
+DAY 60 - 05:24 PST - N/A - Feds toss more tear gas and fire some rubber bullets before finally heading back into the building.  https://youtu.be/5q8CCoCThxE
+DAY 60 - 14:24 PST - N/A - large BLM protest in Los Angeles at West LA Federal building. Protesters are now blocking a intersection. https://www.facebook.com/pg/MarchAndRallyLA/posts/
 ^Josh Friedman https://www.youtube.com/watch?v=v_xwKYuOROo&feature=youtu.be
-DAY 60 OS - 16:00 PST - N/A - large march in NYC https://www.facebook.com/dougwater/videos/3420440491340759/
+DAY 60 - 16:00 PST - N/A - large march in NYC https://www.facebook.com/dougwater/videos/3420440491340759/
 DAY 60 - 18:22 PST - N/A - Event in Austin TX. MENTAL HEALTH WARNING. Ignorance is bliss Moment of silence for Garrett Foster at the vigil in Austin, TX. Garret was shot and killed during a BLM march yesterday.
 DAY 60 - 19:10 PST - N/A - Car drives through protesters in DC (bike may have been run over, no injuries, car stopped by police)
 Day 60 - 19:29 PST - N/A - shot may have been fired  in part infront of Justice center in portland https://www.facebook.com/vnn.live/videos/1450754281778781/
@@ -126,17 +126,17 @@ DAY 60 - 23:05 PST - N/A - People have jumped the fence in Portland (may have ju
 Day 60 - 22:17 PST - N/A - PPrB  (Portland Protest Bureau) begin their nightly Speech
 Day 60 - 22:24 PST - N/A - "We made some things happen. We stopped in at Nike Today. We need as many of you to come to Nike tomorrow" - PPrB
 Day 60 - 22:25 PST - N/A - "We love Nike" - PPrB
-DAY 60 OS - N/A - Richmond, VA - Police arrest a member of the media.....for the second night in a row https://twitter.com/CopsRBad/status/1287626945216356352?s=20
+DAY 60 - N/A - Richmond, VA - Police arrest a member of the media.....for the second night in a row https://twitter.com/CopsRBad/status/1287626945216356352?s=20
 ^Richmond police also noted hand out summons to people in the hospital NSFW
 ^https://twitter.com/aliceironically/status/1287640135572631559?s=20
-DAY 60 OS - 23:30 PST - Eugene, OR - Protesters in Eugene, OR shake fence around Eugene's jail https://twitter.com/RNGDave/status/1287635248260423680?s=20
+DAY 60 - 23:30 PST - Eugene, OR - Protesters in Eugene, OR shake fence around Eugene's jail https://twitter.com/RNGDave/status/1287635248260423680?s=20
 Day 60 - 23:44 PST - N/A - nightly fireworks at Portland Federal courthouse begin
 Day 61 - 00:03 PST - N/A - First warning by feds in Portland
 Day 61 - 00:06 PST - N/A - Federal officers have exited the courthouse in Portland + first gas and pepper balls
 Day 61 - 00:15 PST - N/A - Unlawful assembly declared in Portland
 Day 61 - 00:24 PST - N/A - feds come back out strong after briefly going inside. Force everyone off the fence with riot rounds. This lasts about 2 minutes then they go inside (Portland)
-Day 61 OS - 00:39 PST - N/A - Eugene PD warn protesters to not cross the sidewalk https://twitter.com/RNGDave/status/1287653762333474816?s=20
-Day 61 OS - 00:45 PST - N/A - Eugene PD declare unlawful assembly followed by Eugene PD and protesters talking https://twitter.com/RNGDave/status/1287655032280686592?s=20 situation would end with protesters marching away at 01:07 PST
+Day 61 - 00:39 PST - N/A - Eugene PD warn protesters to not cross the sidewalk https://twitter.com/RNGDave/status/1287653762333474816?s=20
+Day 61 - 00:45 PST - N/A - Eugene PD declare unlawful assembly followed by Eugene PD and protesters talking https://twitter.com/RNGDave/status/1287655032280686592?s=20 situation would end with protesters marching away at 01:07 PST
 Day 61 - 00:57 PST - N/A - teargas out in Portland...again
 ^Molotov thrown ??? https://twitter.com/desertborder/status/1287659493870862338?s=20
 Day 61 - 01:12 PST - N/A - Portland feds are in the street in front of fence though largely unarmed, few batons few riot guns (besides pistols)
@@ -152,10 +152,10 @@ Day 61 - N/A - feds take picture of license plate https://twitter.com/MrOlmos/st
 Day 61 - 02:05 PST - N/A - more tear gas then feds begin smokey retreat https://twitter.com/MrOlmos/status/1287681179143954433?s=20
 Day 61 - 02:09 PST - N/A - over one minute of straight pepper balls + more tear gas
 Day 60 - 02:16 PST - N/A - BlackZebra/Concrete and others form press line and march towards fed line - are met w/ gas, flashbangs, impact/pepper munitions https://clips.twitch.tv/CarelessEndearingMoonANELE
-DAY 61 OS - 02:57 PST - N/A - protesters say "clean the park" and throw trash over the fence in Portland (Concrete reporting) https://www.youtube.com/watch?v=Hwnw9YAUCeA
+DAY 61 - 02:57 PST - N/A - protesters say "clean the park" and throw trash over the fence in Portland (Concrete reporting) https://www.youtube.com/watch?v=Hwnw9YAUCeA
 ^trash has been lit on fire
-DAY 61 OS - 03:14 PST - N/A - single fed shooting pepper balls to hold off crowd while the fire is put out
-DAY 61 OS - 03:20 PST - N/A - feds nearly light a car up on the stream with live ammo
+DAY 61 - 03:14 PST - N/A - single fed shooting pepper balls to hold off crowd while the fire is put out
+DAY 61 - 03:20 PST - N/A - feds nearly light a car up on the stream with live ammo
 Day 61 - 20:06 PST - Tempe, AZ - police have declared a unlawful assembly. arrest being mad
 Day 61 - N/A - N/A - https://twitter.com/zerosum24/status/1287956458685030401?s=20
 Day 61 - 20:38 PST - Tempe, AZ - police arrest man following their orders
@@ -178,8 +178,8 @@ Day 62 - 0:55 PST - N/A - Feds are on the street near Justice Center and marchin
 Day 62 - 01:00 PST - N/A - the crowd of only a few hundred has has largely dispersed
 Day 62 - 1:16 PST - N/A - feds retreat in Portland
 ^Please note for the second night in a row protesters notice something off about the tear gas. Feds are also lighting any one up that tries to pick up those canisters  GROSS several protesters have commented it is stronger and they started puking something not seen in the last 60 days of gas
-DAY 62 OS - N/A - Attorney General William Barr testifies before house judiciary committee. We did learn that 3 Portland feds have been "blinded" by lasers, and some have been hit by pellet guns. With no more evidence to that.
-DAY 62 OS - N/A - NYPD snatch protester off the street in unmarked van with undercover officers. https://nyti.ms/3g8K9eh https://twitter.com/MichelleLhooq/status/1288253381883113475?s=20 https://twitter.com/NYPDnews/status/1288270680614739968?s=20
+DAY 62 - N/A - Attorney General William Barr testifies before house judiciary committee. We did learn that 3 Portland feds have been "blinded" by lasers, and some have been hit by pellet guns. With no more evidence to that.
+DAY 62 - N/A - NYPD snatch protester off the street in unmarked van with undercover officers. https://nyti.ms/3g8K9eh https://twitter.com/MichelleLhooq/status/1288253381883113475?s=20 https://twitter.com/NYPDnews/status/1288270680614739968?s=20
 DAY 62 - 18:00 PST - N/A - streamer Actual Intelligence harassed in NYC over streaming protest....for zero reason
 Day 62 - 19:28 PST - N/A - Kshama Swanat gives speech in Seattle
 DAY 62 - 19:40 PST - N/A - Confederate monument being removed from McDonough Square in Atlanta https://www.youtube.com/watch?v=7HnbyY4phoE&feature=youtu.be
@@ -237,8 +237,8 @@ DAY 64 - 01:35 PDT - N/A - Feds still shooting out of the murder holes (Portland
 DAY 64 - 01:39 PDT - N/A - Feds drive up aggressively in unmarked feds attack the crowd then drive off........(possible failed snatch). Follow by lots of gas (Portland)
 DAY 64 - 01:58 PST - N/A - Portland, OR - Trumpet man went over fence
 DAY 64 - 02:20 PDT - N/A - someone likely the feds is pointing lasers from the roof at two mothers (Portland)
-DAY 64 OS - N/A - N/A - portland feds complain of air quality https://twitter.com/hungrybowtie/status/1289046761625931777?s=20
-DAY 64 OS - N/A - Schenectady, NY - a small fight broke out between protesters and counter protesters
+DAY 64 - N/A - N/A - portland feds complain of air quality https://twitter.com/hungrybowtie/status/1289046761625931777?s=20
+DAY 64 - N/A - Schenectady, NY - a small fight broke out between protesters and counter protesters
 DAY 64 - 16:50 PDT - N/A - protesters in Schenectady, NY sit and block a main road for 20ish minutes before marching down the road
 DAY 64 - 17:35 PDT - N/A - Police in Schenectady, NY form riot line and use annoying siren
 DAY 64 - 17:45 PDT - N/A - Schenectady, NY bottle thrown, pepper balls fly. Police advance on protesters. No indication that it has been declared unlawful
@@ -249,7 +249,7 @@ Day 64 - N/A - N/A - a small protest at the store in Ferguson MO where Mike Brow
 Day 64 - N/A - N/A - protest at home of Los Angeles County sheriff's deputy officer Miguel Vega who shot and killed Andres Guardado (18M) (Los Angeles)
 Day 64 - 22:22 PDT - N/A - First Portland courthouse fence banging
 Day 64 - 22:45 PDT - N/A - Seattle woman's march organizers confront King County Executive Dow Constantine
-Day 64 OS - 23:05 PST - N/A - Portland Police may have grabbed someone.?????
+Day 64 - 23:05 PST - N/A - Portland Police may have grabbed someone.?????
 Day 64 - 23:15 PDT - N/A - first firework in Portland, not near courthouse
 Day 64 - 23:26 PDT - N/A - trash and glass being thrown over Portland courthouse fence
 Day 65 - 00:30 PDT - N/A - Arex commands the mic and the crowd in Portland
@@ -272,14 +272,14 @@ DAY 66 - 00:51 PST - Portland, OR - Sputnik stream has fire on inside of fence
 DAY 66 - 01:21 PDT - N/A - strange church bells heard around Portland courthouse
 DAY 66 - 01:30 PDT - N/A - Protesters are banging on the rear garage door of courthouse
 DAY 66 - 02:48 PDT - N/A - ConcreteReporting got a beast interview with beneficial interruptions. Needs to be clipped.
-DAY 66 OS - 16:49 PDT - La Mesa, CA PD form a riot line between BLM protesters and counter protesters.  Protesters then start marching away followed by a few counter protesters https://www.facebook.com/EkRojas760/videos/3173107979421863/
+DAY 66 - 16:49 PDT - La Mesa, CA PD form a riot line between BLM protesters and counter protesters.  Protesters then start marching away followed by a few counter protesters https://www.facebook.com/EkRojas760/videos/3173107979421863/
 Day 66 - N/A - N/A - very large marches in Philadelphia PA, La Mesa CA and Washington DC. Also large events in Portland OR,  Austin TX and Nashville TN, Chicago IL, Seattle WA. Sacramento CA
-DAY 66 OS - 17:00 PDT - N/A - Boogaloo's who oppose gov't oppression visit the vigil for Garret Foster (Austin) https://twitter.com/MaxGeopolitics/status/1289712367152947200?s=20  https://www.facebook.com/watch/live/?v=920319628446671&ref=watch_permalink
-DAY 66 OS - 17:20 PDT - N/A - Austin PD storm the vigil for Garret Foster and start pepper spraying. (i lack more details, but this is separate from the main Austin event) https://twitter.com/CandiceBernd/status/1289717781395472384?s=20
+DAY 66 - 17:00 PDT - N/A - Boogaloo's who oppose gov't oppression visit the vigil for Garret Foster (Austin) https://twitter.com/MaxGeopolitics/status/1289712367152947200?s=20  https://www.facebook.com/watch/live/?v=920319628446671&ref=watch_permalink
+DAY 66 - 17:20 PDT - N/A - Austin PD storm the vigil for Garret Foster and start pepper spraying. (i lack more details, but this is separate from the main Austin event) https://twitter.com/CandiceBernd/status/1289717781395472384?s=20
 DAY 66 - 18:00 PDT - N/A - good, factual speech about what we are protesting against (Portland) https://www.facebook.com/tre.stewart/videos/3125467880869025/
 DAY 66 - 18:25 PDT - N/A - Fights break out between protesters and counter protesters. (not at all supported by the BLM organizers). Riot police are force to break it up. 1 counter protester arrested. https://www.facebook.com/EkRojas760/videos/3173107979421863/
 DAY 66 - 18:35 PDT - N/A - some handshaking between protesters and counter protesters in Austin before the police step in separate the crowds
-DAY 66 OS - 19:00 PDT - N/A - BLM March in DC takes the highway https://twitter.com/ChuckModi1/status/1289743604672368641?s=20
+DAY 66 - 19:00 PDT - N/A - BLM March in DC takes the highway https://twitter.com/ChuckModi1/status/1289743604672368641?s=20
 DAY 66 - 19:00 PDT - N/A - Austin PD has formed a riot line (reason unknown) at the smaller event  near the vigil for Garrett Foster  with armed Boogaloo's . Several were arrested, pepper spray deployed. https://twitter.com/Third3y3Club/status/1289748625015230465?s=20
 DAY 66 - 19:30 PDT - N/A - Austin protester have surrounded the cops  then march away a few minute later. https://twitter.com/sav_says_/status/1289751141140455426?s=20
 DAY 66 - 19:30 PDT - N/A - most of the smaller Austin protest near the vigil has marched away, though a few armed individuals remain guarding it. https://twitter.com/kidwell_nate/status/1289758859440005121?s=20
@@ -300,12 +300,12 @@ Day 66 - N/A - N/A - Police are noted to have attacked a press car https://twitt
 Day 66 - N/A - N/A - no action at Portland federal courthouse yet. crowd is calm
 Day 66 - 22:17 PDT - N/A - Portland police are noted to be outside the justice center with weapons for no clear reason. https://twitter.com/JulesBoykoff/status/1289808290663211008?s=20
 Day 67 - 00:01 PDT - N/A - Portland Protesters kick ????? out of the crowd by JC
-Day 67 OS - 16:45 PDT - N/A - police in Utah attack BLM dance party with tear gas and batons. (I lack more context) https://twitter.com/ThisIsTheDuke/status/1290070588900270080?s=20 + https://twitter.com/Harryson_james/status/1290094912805847041?s=20 + https://twitter.com/ActuallyDSW/status/1290095124442054656?s=20 + https://www.facebook.com/CouncilWomanTaliBruce/videos/587445865252832
+Day 67 - 16:45 PDT - N/A - police in Utah attack BLM dance party with tear gas and batons. (I lack more context) https://twitter.com/ThisIsTheDuke/status/1290070588900270080?s=20 + https://twitter.com/Harryson_james/status/1290094912805847041?s=20 + https://twitter.com/ActuallyDSW/status/1290095124442054656?s=20 + https://www.facebook.com/CouncilWomanTaliBruce/videos/587445865252832
 Day 67 - 18:33 PST - N/A - Attempted arrest, de-arrest completed.  Another individual arrested - LA Cali
 Day 67 - 22:23 PDT - N/A - Small fire in the road in Louisville, KY. Police set up riot line to protect the firemen. Otherwise pretty calm and the police are forced to stand in the rain.
 Day 68 - N/A - N/A - nothing to note. quiet night.
 DAY 68 - N/A - N/A - A large crowd of BLM supporters and bootlicking counter protesters in Cottonwood Heights UT after the events of yesterday.
-Day 68 OS - 20:30 PST - Portland, OR - Tweet reports protester stabbed.  NSFW: Blood - Portland OR
+Day 68 - 20:30 PST - Portland, OR - Tweet reports protester stabbed.  NSFW: Blood - Portland OR
 ^https://twitter.com/pdxfrontline/status/1290491822393839616
 Day 68 - 21:30 PST - Portland, OR - Protestors at Multnomah Co Sheriff Office
 Day 68 - 22:04 PST - Portland, OR - LRAD Annoucement to stay off MCSO property, officers observe objects being thrown, threats for use of force if continued
@@ -338,11 +338,11 @@ Day 70 - 01:40 PST - Arrest don't know why. Maybe cause not being on sidewalk?
 Day 70 - 02:20 PST - Injured protestor taken from scene in ambulance
 DAY 70 - 13:20 CDT - Frank Nitty II starts the 2nd day of his march from Milwaukee to DC
 ^https://www.facebook.com/100011275926869/videos/1170575953328258
-DAY 70 OS - 14:00 PDT - very large march in Seattle WA from the new youth jail to city hall. (at least a couple thousand) https://www.youtube.com/watch?v=RdHxHb39nl4 
+DAY 70 - 14:00 PDT - very large march in Seattle WA from the new youth jail to city hall. (at least a couple thousand) https://www.youtube.com/watch?v=RdHxHb39nl4 
 ^good shot of crowd size https://clips.twitch.tv/FlaccidHotSpaghettiKappaWealth + https://clips.twitch.tv/CrepuscularHappyPeachPastaThat
-DAY 70 OS - N/A - Seattle city council vote not to defund SPD despite having 7 confirmed votes (6 did not hold their promise, Kshama Sawant came through) they did get other wins tho https://twitter.com/daeshikjr/status/1291148259465994242?s=20
-DAY 70 OS - N/A - Police in Eugene OR go to protesters houses and made arrests for charges such as riot, 4th degree assault, criminal mischief. (at least 20 arrests) https://twitter.com/chadloder/status/1291244208418770944?s=20
-DAY 69|70 OS - N/A - SERT (SWAT) raided MultCo jail in retaliation for a Mercury article about jail strike/protest. (Multnomah County - Portland) https://twitter.com/alex_zee/status/1291108022232612864?s=20
+DAY 70 - N/A - Seattle city council vote not to defund SPD despite having 7 confirmed votes (6 did not hold their promise, Kshama Sawant came through) they did get other wins tho https://twitter.com/daeshikjr/status/1291148259465994242?s=20
+DAY 70 - N/A - Police in Eugene OR go to protesters houses and made arrests for charges such as riot, 4th degree assault, criminal mischief. (at least 20 arrests) https://twitter.com/chadloder/status/1291244208418770944?s=20
+DAY 70 - N/A - SERT (SWAT) raided MultCo jail in retaliation for a Mercury article about jail strike/protest. (Multnomah County - Portland) https://twitter.com/alex_zee/status/1291108022232612864?s=20
 Day 70 - 22:36 PDT - Seattle, WA - more pepperballs in seattle??? (may have been a drum)
 Day 70 - 22:45 PDT - Seattle, WA - person detained
 Day 70 - 22:49 PST - Portland, OR - PPB pushing the line again further away from East Precinct.
@@ -362,7 +362,7 @@ Day 71 - 00:30 PDT - Portland, OR - PPB show up again
 Day 71 - 00:31 PDT - Portland, OR - PPB charge and arrest someone with a shield in the street
 Day 71 - 00:40 PDT - Portland, OR - PPB leave
 Day 71 - 00:45 PDT - Portland, OR - tire slashed seen on stream not clear when it happened
-Day 71 OS - N/A - Portland, OR - Oregon State Police show up at protesters houses in Portland https://twitter.com/R3volutionDaddy/status/1291522109672308737?s=20
+Day 71 - N/A - Portland, OR - Oregon State Police show up at protesters houses in Portland https://twitter.com/R3volutionDaddy/status/1291522109672308737?s=20
 Day 71 - 21:43 PDT - Portland, OR - March to East Precinct begins and is met with strange announcement from PPB LRAD https://clips.twitch.tv/GiantAstuteNewtGrammarKing https://twitter.com/shane_burley1/status/1291596500091326466?s=20
 Day 71 - 21:45 PDT - Portland, OR - someone breaks a camera on east precinct https://twitter.com/MrOlmos/status/1291597269796401153?s=20 + https://twitter.com/hungrybowtie/status/1291597989668982786?s=20 exact time unclear
 Day 71 - 21:51 PDT - Portland, OR - unlawful assembly declared by east precinct. paint thrown on precinct https://twitter.com/hungrybowtie/status/1291598662808686592?s=20
@@ -385,7 +385,7 @@ Day 71 - 22:57 PDT - Portland, OR - People sitting in the street in portland
 Day 71 - 22:59 PDT - Portland, OR - PPB rush in on vans and form riot line and push protesters (may be because they were near nazi ladies house)
 Day 71 - 23:02 PDT - Portland, OR - medic cart tipped https://clips.twitch.tv/NaiveHappyCormorantRaccAttack + https://twitter.com/Cascadianphotog/status/1291616494946672642?s=20 + https://twitter.com/Bitchwitch20/status/1291643458604503040?s=20
 Day 71 - 23:11 PDT - Portland, OR - cops load up and pull out. egg thrown at officer
-Day 71 OS - 23:30 PDT - Portland, OR - someone steps in the street and PPB grabs them? (unclear exact reason)
+Day 71 - 23:30 PDT - Portland, OR - someone steps in the street and PPB grabs them? (unclear exact reason)
 Day 71 - 23:40 PDT - Portland, OR - PPB load up,  and use the repaired LRAD to push protesters
 Day 71 - 23:47 PDT - Portland, OR - Less lethals fired (audio only)
 Day 71 - 23:53 PDT - Portland, OR - group of mostly press forced back away from crowd. Police annoying the world with sirens
@@ -423,7 +423,7 @@ Day 72 - 22:38 PDT - Portland, OR - PPB rushes out and forms a quick line then r
 Day 72 - 22:53 PDT - Portland, OR - Person walks onto property filming. PPB runs out, person gets arrested.
 ^https://twitter.com/hungrybowtie/status/1291976761559769088?s=20
 Day 72 - 23:10 PDT - Portland, OR - Person in front of shield wall moons the police
-Day 72 OS - 23:16 PDT - Portland, OR - Reports of trucks w/o plates headed towards MCSO where protests are taking place. - https://twitter.com/defendpdx/status/1291981573403762689
+Day 72 - 23:16 PDT - Portland, OR - Reports of trucks w/o plates headed towards MCSO where protests are taking place. - https://twitter.com/defendpdx/status/1291981573403762689
 Day 73 - 00:02 PDT - Portland, OR - police run out to arrest person banging on flag pole. they fail and head back inside. https://twitter.com/45thabsurdist/status/1291992129233797125?s=20 + https://twitter.com/GriffinMalone6/status/1291993557146845190?s=20
 ^then the person returns https://twitter.com/GriffinMalone6/status/1291993835220815872?s=20
 Day 73 - 00:09 PDT - Portland, OR - DJ LRAD announcement not clear what it was. first in a long time
@@ -482,10 +482,10 @@ Day 74 - 01:47 PDT - Portland, OR - 2+ arrests.
 Day 74 - 01:51 PDT - Portland, OR - arresting ACLU member https://twitter.com/ajsoulmate2928/status/1292385555381022720?s=20 + https://twitter.com/1misanthrophile/status/1292387123966836736?s=20
 Day 74 - 02:06 PDT - Portland, OR - PPB pack up and leave.
 Day 74 - 02:30 PDT - Portland, OR - Person on motorized bike hit 2 people, one seriously injured. Ambulance called. Police respond. (may have been a accident)
-Day 74 OS - 10:00 PST - Fort Collins, CO - large brawl between protesters and bootlickers
+Day 74 - 10:00 PST - Fort Collins, CO - large brawl between protesters and bootlickers
 ^https://twitter.com/blktechwarrior/status/1292507096295051266?s=19 and update 3 arrested https://tinyurl.com/y5au3nds
-Day 74 OS - 15:00 PST - Seattle, WA - smoke bomb set off (unclear by who) https://twitter.com/caseyworks/status/1292582944091996161
-Day 74 OS - 18:00 PST - Louisville, KY - Protest ordered to get out of street by LMPD. some arrests made. (this is the end of a very large march which ended a bit ago) https://twitter.com/ACLUofKY/status/1292627330033123328?s=20 + https://twitter.com/TobinBen/status/1292634103762780162?s=20
+Day 74 - 15:00 PST - Seattle, WA - smoke bomb set off (unclear by who) https://twitter.com/caseyworks/status/1292582944091996161
+Day 74 - 18:00 PST - Louisville, KY - Protest ordered to get out of street by LMPD. some arrests made. (this is the end of a very large march which ended a bit ago) https://twitter.com/ACLUofKY/status/1292627330033123328?s=20 + https://twitter.com/TobinBen/status/1292634103762780162?s=20
 ^(Backstory: yesterday people trashed 4th Street Live, so today LMPD said people could not march in the street. Today people march)
 Day 74 - 18:08 PST - Ferguson, MO - FPD order protester off police property and into the street.
 Day 74 - 18:25 PST - Ferguson, MO - County police have formed a riot line for no reason https://twitter.com/Torcho/status/1292635102204370944?s=20
@@ -506,8 +506,8 @@ Day 74 - 22:12 PST - Portland, OR - Tire slashed by ppb on Adam's stream. Red 4 
 Day 74 - 22:14 PST - Portland, OR - 2nd firework out on teebs stream
 Day 74 - 22:27 PST - Portland, OR - riot line sweep thru the park and make arrests in park they also drive thru the park. More arrests made just after back on the main road by PPA https://twitter.com/TheRealCoryElia/status/1292695942131404800?s=20 +
 ^https://clips.twitch.tv/SteamyAlertDillSaltBae
-Day 74 OS - 22:50 PST - Chicago, IL - Chicago is looting and rioting https://twitter.com/ChiLivePD/status/1292697790351630338?s=20
-Day 74 OS - ~2:51 PST - Seattle, WA - multiple store windows were shattered
+Day 74 - 22:50 PST - Chicago, IL - Chicago is looting and rioting https://twitter.com/ChiLivePD/status/1292697790351630338?s=20
+Day 74 - ~2:51 PST - Seattle, WA - multiple store windows were shattered
 ^https://clips.twitch.tv/AgreeableNeighborlyKimchiSpicyBoy
 Day 74 - 22:51 PST - Seattle, WA - Seattle PD check thru medics bags and release them
 ^https://twitter.com/infantry1/status/1292696393354633216?s=20
@@ -697,7 +697,7 @@ Day 80 - 01:45 PDT - Portland, OR - PPB start calling for tows
 Day 80 - 02:10 PDT - Portland, OR -  PPB load up
 Day 80 - 02:41 PDT - More LRAD annoucments that it is unlawful....tho nothing has happened and there is like 30 people left
 Day 80 - 03:50 PDT - Blessings guy hops into a car told to turn of stream, moment's before there was mention of "needing heavy metal" :sus:
-Day 80 OS - 20:44 PST - Stone Mountain, GA - BLM and Trumpers meet in Stone Mountain, Georgia. Tensions escalating
+Day 80 - 20:44 PST - Stone Mountain, GA - BLM and Trumpers meet in Stone Mountain, Georgia. Tensions escalating
 ^https://youtu.be/ICYFDJPp05E
 Day 80 - 09:10 PST - Stone Mountain, GA - Protests - Grappling and grabbing between white nationalist and BLM protestors.
 Day 80 - 11:27 PST - Juice WRLD being played at Georgia protest :fire:
@@ -720,13 +720,13 @@ Day 80 - 15:54 PDT - Chicago, IL - cops have grabbed some of the umbrellas and b
 Day 80 - 15:59 PDT - Chicago, IL - riot police are macing a peaceful crowd https://clips.twitch.tv/StupidGentleAlligatorHassanChop
 Day 80 - 16:18 PDT - Chicago, IL - CPD do that "Move Back" bike line push. march decides to move on
 Day 80 - 17:00 PDT - Seattle, WA - SPD push Cal Anderson Park, reports of arrests.
-Day 80 OS - N/A - Pittsburg, PA - OFF STREAM possible fed abduction in Pittsburg https://twitter.com/samm_bones/status/1294769302348890113?s=20
+Day 80 - N/A - Pittsburg, PA - OFF STREAM possible fed abduction in Pittsburg https://twitter.com/samm_bones/status/1294769302348890113?s=20
 Day 80 - 17:02 PDT - Chicago, IL - Chicago brawl, CPD shove people, mace used https://twitter.com/delvecchiograce/status/1294786846594142210?s=20 + arrests made https://twitter.com/real_defender/status/1294794730853879810
 Day 80 - 17:16 PDT - Chicago, IL - CPD split the group https://twitter.com/delvecchiograce/status/1294790189383135232?s=20
 Day 80 - 17:17 PDT - Chicago, IL - dirt and part of march is trapped https://twitter.com/delvecchiograce/status/1294792505595170818?s=20 + https://twitter.com/DominicGwinn/status/1294791318317740032?s=20
 Day 80 - 17:22 PDT - Chicago, IL - ordering people to empty backpacks for no reason https://clips.twitch.tv/VictoriousDistinctNewtSoonerLater + https://twitter.com/DominicGwinn/status/1294792483772268550?s=20
 Day 80 - 17:42 PDT - Chicago, IL -  some arrests being made. unclear for what. (we later learned 24 arrests were made, 17 officers were "hurt")
-Day 80 OS - N/A - Beverly Hills, CA - someone ripped up a "MAGA flag" and someone threw a punch/tackled someone else. It wasn't on stream. BHPD arrested a black protestor. credit to @skweetis https://www.facebook.com/nameisprecious/videos/3195235213900572/
+Day 80 - N/A - Beverly Hills, CA - someone ripped up a "MAGA flag" and someone threw a punch/tackled someone else. It wasn't on stream. BHPD arrested a black protestor. credit to @skweetis https://www.facebook.com/nameisprecious/videos/3195235213900572/
 Day 80 - 20:30 PDT - Portland, OR - march staging at Laurelhurst Park
 Day 80 - 21:10 PDT - Portland, OR - march leaves the park
 Day 80 - 21:29 PDT - Portland, OR - march met by several motor bike cops just outside MCSO. followed by LRAD announcement's to stay off property. https://twitter.com/MaranieRae/status/1294856228712013825?s=20 (just showing the crowd)
@@ -819,8 +819,8 @@ Day 82 - 23:30 PDT - Portland, OR - Protesters part for public bus https://twitt
 Day 82 - 23:48 PDT - Portland, OR - Letha Winston speaks to the protest at the PPA. - https://twitter.com/IwriteOK/status/1295613593019441152
 Day 83 - 00:15 PDT - Portland, OR - Part of the crowd wants to march after hearing Letha Winston. Folks are trying to organize where to go.
 Day 83 - 00:25 PDT - Portland, OR - The bulk of the crowd has decided to stick with Demetria Hester. They are still out in front of the PPA. https://twitter.com/IwriteOK/status/1295622534960881666
-Day 83 OS - 02:24 PDT - fire reported at PPB https://twitter.com/matcha_chai/status/1295652737154048001
-Day 83 OS - 02:50 PDT - fire no longer active, 1x Cops, 4x Firefighters on the scene https://twitter.com/FancyJenkins/status/1295659823510372352
+Day 83 - 02:24 PDT - fire reported at PPB https://twitter.com/matcha_chai/status/1295652737154048001
+Day 83 - 02:50 PDT - fire no longer active, 1x Cops, 4x Firefighters on the scene https://twitter.com/FancyJenkins/status/1295659823510372352
 Day 83 - N/A - Hot mess on franks stream https://www.facebook.com/100011275926869/videos/1186263355092851/?id=100011275926869
 DAY 83 - ~18:15 - ?, OH - Frank Nitty marching to DC
 Day 83 - N/A - Group marching down the road came to a stop when road was blocked by around two dozen people claiming to "protect their town from angry people"
@@ -895,11 +895,11 @@ Day 86 - 01:11 PDT - Portland, OR - DJ LRAD stutters and says OFFICE--OFF-OFF-OF
 Day 86 - 01:15 PDT - Portland, OR - Multiple protesters are violently arrested. LRAD continues to declare "unlawful assembly."  @rain_pdx is among those arrested.
 ^https://twitter.com/coltshmolt/status/1296724524382093313
 Day 86 - 01:27 PDT - Portland, OR - PPB mounts up and retreats.
-Day 86 OS - 14:28 PDT - Orlando, FL - at least one arrest after protesters tried to "unlawfully" cross the street.on intl
-Day 86 OS - 14:34 PDT - Orlando, FL - Protester with broken arm arrested, for stepping on the crosswalk (?)
-Day 86 OS - 17:21 PDT - Tujunga, CA - shouting match between antifa and BTB turns physical, gets seperated by Cop line. Reportedly two arrested antifascists. https://twitter.com/desertborder/status/1296969887441592323
-Day 86 OS - 17:26 PDT - Tujunga, CA - unlawful assembly declared by LAPD, both sides must leave within 15 minutes or rubber bullets will be used.
-Day 86 OS - 17:29 PDT - Tujunga, CA - pink smoke bomb thrown at cops from antifa side, Cops shoot rubber bullets and gas.
+Day 86 - 14:28 PDT - Orlando, FL - at least one arrest after protesters tried to "unlawfully" cross the street.on intl
+Day 86 - 14:34 PDT - Orlando, FL - Protester with broken arm arrested, for stepping on the crosswalk (?)
+Day 86 - 17:21 PDT - Tujunga, CA - shouting match between antifa and BTB turns physical, gets seperated by Cop line. Reportedly two arrested antifascists. https://twitter.com/desertborder/status/1296969887441592323
+Day 86 - 17:26 PDT - Tujunga, CA - unlawful assembly declared by LAPD, both sides must leave within 15 minutes or rubber bullets will be used.
+Day 86 - 17:29 PDT - Tujunga, CA - pink smoke bomb thrown at cops from antifa side, Cops shoot rubber bullets and gas.
 Day 86 - 17:56 PDT - Tujunga, CA - 30 minutes after unlawful assembly was declared, Trumpsters are still packing up their cars without being harassed by police.
 Day 86 - 18:15 PDT - Tujunga, CA - the last protesters are leaving, presumably towards Pasadena, where a vigil for Anthony McClane is to be held at the PPD.
 Day 86 - 18:25 PDT - Overland Park, KS - protesters chanting their demands on the sidewalk opposite the mayor's house are told by cops to leave the residential area. Protesters give themselves 2 minutes for each to decide if they want to stay or leave.
@@ -1239,7 +1239,7 @@ Day 89 - 23:05 PDT - Los Angeles, CA - Protestors take barricade away from LAPD 
 Day 89 - 23:08 PDT - Los Angeles, CA - LAPD start to form perimeters around the protestors. - https://twitter.com/SamBraslow/status/1298139974693351424
 Day 89 - 23:17 PDT - Portland, OR - PPB makes arrests outside the PPA. - https://twitter.com/tehandy121/status/1298145598709747713 - https://twitter.com/1misanthrophile/status/1298145118965252097
 Day 89 - 23:17 PDT - Portland, OR - Violent charge/multiple arrests, tear gas
-https://twitter.com/1misanthrophile/status/1298144192095346688
+^https://twitter.com/1misanthrophile/status/1298144192095346688
 Day 89 - 23:18 PDT - Kenosha, WI - Boogs on stream again in Kenosha.
 Day 89 - 23:19 PDT - Portland, OR - PPB threatening press and giving illegal orders.
 Day 89 - 23:20 PDT - Portland, OR - PPB pushes down press. - https://clips.twitch.tv/CoweringColdDonkeyRaccAttack - https://twitter.com/MrOlmos/status/1298145800287993856 - https://twitter.com/GridWideNews/status/1298166729022025729?s=20
@@ -1248,7 +1248,7 @@ Day 89 - 23:25 PDT - Los Angeles, CA - LAPD forms riot line.
 Day 89 - 23:28 PDT - Los Angeles, CA - LAPD begin push in on protestors.
 Day 89 - 23:31 PDT - Los Angeles, CA - LAPD and protestors face off in line. Umbrellas and shields up.
 Day 89 - 23:32 PDT - Los Angeles, CA - LAPD begins to push with batons. Protest line backs up.
-Day 89 OS - N/A - Kenosha, WI - Cop car reportedly stolen. - https://twitter.com/HustleDez5/status/1298137517833814016
+Day 89 - N/A - Kenosha, WI - Cop car reportedly stolen. - https://twitter.com/HustleDez5/status/1298137517833814016
 Day 89 - 23:43 PDT - Los Angeles, CA - LAPD remove barricades. - https://twitter.com/SamBraslow/status/1298148948712886272
 Day 89 - 23:44 PDT - Los Angeles, CA - Protest declared unlawful assembly by LAPD.
 Day 89 - 23:48 PDT - Los Angeles, CA - LAPD begins push with large line of riot cops. - https://twitter.com/SamBraslow/status/1298150874582151168
@@ -1287,15 +1287,15 @@ Day 90 - 01:19 PDT - Kenosha, WI - https://twitter.com/JVarContinental/status/12
 Day 89 - N/A - Some footage from last night 89-90 in Kenosha, fires and gunfire heard https://youtu.be/4kUKYiGY--8
 Day 89 - N/A - Cop car stolen in kenoshas last night time unclear https://twitter.com/RichyLovesYou/status/1298149316532396033?s=20
 Day 89 - N/A - Madison, WI last night https://twitter.com/OIls102/status/1298440707250823168?s=20
-Day 90 OS - 12:33 PDT - Kenosha, WI - A sacred fence has been built in front of the Kenosha County Courthouse in order to further defend the courthouse from rioters. 
+Day 90 - 12:33 PDT - Kenosha, WI - A sacred fence has been built in front of the Kenosha County Courthouse in order to further defend the courthouse from rioters. 
 ^https://twitter.com/GidTruth/status/1298342746579783680?s=19
-Day 90 OS - 13:56 - Louisville, KY - Multiple arrest during protest https://www.youtube.com/watch?v=cF_Ha35iLxA
-Day 90 OS - 17:50 PDT - Louisville, KY - three arrests made by LMPD. no answers by the cops when being asked why. They're also refusing to give out names and badge numbers. Update: seems it's for weapons posession. https://twitter.com/selfdeclaredref/status/1298425116255281153
-Day 90 OS - ~18:00 PDT - Atlanta GA - things are getting tense, windows broken, smoke deployed https://twitter.com/AcidVitalism/status/1298424476904886277?s=09 https://twitter.com/selfdeclaredref/status/1298423216139010048?s=20 De-arrest https://twitter.com/MattWSB/status/1298427505146236930?s=20
-Day 90 OS - ~18:00 PDT - Madison WI - vigil for Jacob Blake https://twitter.com/SpectrumNews1WI/status/1298432203802718210?s=20
-Day 90 OS - 18:11 PDT - Louisville, KY - LMPD tows non protester's truck and arrests their friend, who was inside McDonalds before, for no obvious reason.
+Day 90 - 13:56 - Louisville, KY - Multiple arrest during protest https://www.youtube.com/watch?v=cF_Ha35iLxA
+Day 90 - 17:50 PDT - Louisville, KY - three arrests made by LMPD. no answers by the cops when being asked why. They're also refusing to give out names and badge numbers. Update: seems it's for weapons posession. https://twitter.com/selfdeclaredref/status/1298425116255281153
+Day 90 - ~18:00 PDT - Atlanta GA - things are getting tense, windows broken, smoke deployed https://twitter.com/AcidVitalism/status/1298424476904886277?s=09 https://twitter.com/selfdeclaredref/status/1298423216139010048?s=20 De-arrest https://twitter.com/MattWSB/status/1298427505146236930?s=20
+Day 90 - ~18:00 PDT - Madison WI - vigil for Jacob Blake https://twitter.com/SpectrumNews1WI/status/1298432203802718210?s=20
+Day 90 - 18:11 PDT - Louisville, KY - LMPD tows non protester's truck and arrests their friend, who was inside McDonalds before, for no obvious reason.
 ^https://twitter.com/selfdeclaredref/status/1298428587494776833
-DAY 90 OS - N/A - Louisville KY- multiple arrests being made https://twitter.com/selfdeclaredref/status/1298425116255281153?s=19
+DAY 90 - N/A - Louisville KY- multiple arrests being made https://twitter.com/selfdeclaredref/status/1298425116255281153?s=19
 ^https://youtu.be/BXE3ZscLegA
 Day 90 - 18:20 PDT - Kenosha, WI - a single National guard member in riot gear is outside the court house https://twitter.com/CommiesLmao/status/1298431177158733826?s=20
 Day 90 - 18:30 PDT - Kansas City MO - a sizable and very well organized protest, also giving lessons on protesting
@@ -1548,7 +1548,7 @@ Day 91 - 23:15 PDT - Portland, OR - Violent arrests
 ^https://clips.twitch.tv/RealCaringSushiMikeHogu
 Day 92 - 21:12 PDT - Washington, DC - cars are being let out of Whitehouse event.
 Day 92 - 21:16 PDT - Seattle, WA - EDM is at SPOG (union) president Mike Solens house
-Day 92 OS - N/A - Portland, OR - The Ninth Circuit has temporarily suspended order protecting legal observers and journalists from federal officers
+Day 92 - N/A - Portland, OR - The Ninth Circuit has temporarily suspended order protecting legal observers and journalists from federal officers
 Day 92 - N/A - In the 2-1 decision, Judges Daniel Bress and Eric Miller, both Trump-appointed, wrote the restrictions would "cause irreparable harm" https://twitter.com/Rjaellis/status/1299173669705363458
 Day 92 - 21:27 - Los Angeles, CA - BLM protesters reach the chief of police's house https://twitter.com/TheScoopUSA/status/1299201568030457861
 Day 92 - ~21:30 PDT - Sacramento, CA - Sacramento sheriffs department windows smashed and building tagged https://twitter.com/Captain_Hooks/status/1299200885147361280?s=20
@@ -1650,7 +1650,7 @@ Day 93 - 21:15 PDT - San Jose CA - Protesters dancing in the street: https://twi
 Day 93 - N/A - Oakland, CA- Tear gas deployed onto protesters: https://twitter.com/rolandlisf/status/1299563796273324034?s=19
 Day 93 - 21:25 PDT - Denver, CO - swat coming in, protesters leave the PD
 Day 93 - 21:25 PDT - San Diego, CA - skirmish between cops and protesters
-Day 94 OS - 02:36 - Portland, OR - PPB take down crime scene tape
+Day 94 - 02:36 - Portland, OR - PPB take down crime scene tape
 Day 94 - 12:04 PDT - New Port Richey, FL - 5th citation for BLM for "amplified noise" in the park today, ca. 11 cops deliver the 500$ ordinance
 Day 94 - 12:10 PDT - New Port Richey, FL - trespass warning issued
 Day 94 - 12:10 PDT - New Port Richey, FL - protesters are leaving the park for a march through the city
@@ -1695,7 +1695,7 @@ Day 94 - 19:59 PDT - Portland, OR - another fight, chud bleeding
 Day 94 - 20:00 PDT - Portland, OR - bycicle run over, cyclist seems to be alright, motorist is allowed to leave 
 ^https://twitter.com/ByMikeBaker/status/1299905598192939008
 ^https://twitter.com/garedicus/status/1299908007208329216
-Day 94 OS - 20:06 PDT - Portland, OR - press assaulted https://twitter.com/justadog/status/1299906190713913344
+Day 94 - 20:06 PDT - Portland, OR - press assaulted https://twitter.com/justadog/status/1299906190713913344
 Day 94 - 20:18 PDT - Portland, OR - trumpsters use paintballs and maze against BLM
 ^https://twitter.com/ByMikeBaker/status/1299909726231171072
 ^https://twitter.com/TheRealCoryElia/status/1299908378810957825
@@ -1766,7 +1766,7 @@ Day 95 - 00:43 PDT - Washington, DC - A small group has continued marching in DC
 Day 95 - 01:01 PDT - Washington, DC - Small group march is now near Whitehouse where they disperse
 Day 95 - 08:59 PDT - Charleston, SC - BLM trombone player arrested
 Day 95 - 09:09 PDT - Charleston, SC - both sides leave in charleston
-Day 95 OS - 10:00 PDT - San Francisco, CA - Pro-Trump groups have formed together for a "Walk Away" rally that plans to cross the Golden Gate Bridge: https://twitter.com/sandraschulze/status/1300131316524969984?s=20
+Day 95 - 10:00 PDT - San Francisco, CA - Pro-Trump groups have formed together for a "Walk Away" rally that plans to cross the Golden Gate Bridge: https://twitter.com/sandraschulze/status/1300131316524969984?s=20
 Day 95 - 11:00 PDT - Pro-Trump supporters are gathered on the bridge, taking pictures and mainly standing around: https://twitter.com/916Mimi916/status/1300137108586160133?s=20
 Day 95 - 11:40 PDT - They are continuing across the bridge with police protection: https://twitter.com/lilitaliangrr/status/1300141555152351232?s=20
 Day 95 - 12:00 PDT - A handful of counter protesters are heckling the crowd, as the police move in to protect pro-Trump side. They shout "back the blue"in response. 
@@ -2039,8 +2039,8 @@ Day 101 - 21:06PDT - https://twitter.com/KittyLists/status/1302481652652732416?s
 ^'hold the line!' 'don't stop now' 'we stronger than them'
 Day 101 - 21:14 PDT - Rochester NY - Protesters trapped /boxed in by police: https://twitter.com/KD_Perkins/status/1302459535521648640
 Day 101 - 21:16 PDT - Portland OR - Projectile is thrown into street and flames erupt. NSFL Protester is hit by flames and begins to panic. Runs toward crowd who assists in putting out flames.
-https://twitter.com/TaylerUSA/status/1302461688910770176?s=20
- https://twitter.com/SCCacti/status/1302460916013895680
+^https://twitter.com/TaylerUSA/status/1302461688910770176?s=20
+^https://twitter.com/SCCacti/status/1302460916013895680
 Day 101 - 21:15 PDT - Los Angeles CA - [OFFSTREAM] LASD continue to fire on protestors that remain at the station. - https://twitter.com/waterspider__/status/1302460233290117122
 Day 101 - 21:19 PDT - Portland OR - LRAD announcement.
 Day 101 - 21:20 PDT - Los Angeles CA - Helicopter circling above protesters:
@@ -2086,21 +2086,21 @@ Day 102 - 01:07 PDT - Portland OR - PPB begins marching down street to push prot
 Day 102 - 01:10 PDT - Portland OR - PPB push people through the park to disperse.
 Day 102 - 01:14 PDT - Portland OR - Explosions are heard on stream. Reports of pipe bombs thrown out by PBs. - https://twitter.com/RobHarden/status/1302519775294140417 - https://twitter.com/pdocumentarians/status/1302551037958434821?s=21
 Day 102 - 01:15 PDT - Portland OR - PPB make several arrests. - https://twitter.com/garedicus/status/1302520370210238469
-Day 102 - Rochester NY - Mayor Lovely Warren and Rochester Police Chief La'Ron Singletary hold a press conference https://13wham.com/news/local/mayor-warren-and-chief-singletary-respond-to-daniel-prude-protests skip to 20:00min on video
-Day 102 OS- 16:40 PDT - Rochester NY- 'Elder Shield' has lined up in anticipation of protesters: https://twitter.com/CitizenMurphy/status/1302747918831681536?s=20
-^[pic: https://twitter.com/JoshNavarroTV/status/1302756636784758785?s=20 ]
-^[https://twitter.com/chrisdonato04/status/1302767558471413760?s=20]
+Day 102 - N/A - Rochester NY - Mayor Lovely Warren and Rochester Police Chief La'Ron Singletary hold a press conference https://13wham.com/news/local/mayor-warren-and-chief-singletary-respond-to-daniel-prude-protests skip to 20:00min on video
+Day 102 - 16:40 PDT - Rochester NY- 'Elder Shield' has lined up in anticipation of protesters: https://twitter.com/CitizenMurphy/status/1302747918831681536?s=20
+^https://twitter.com/JoshNavarroTV/status/1302756636784758785?s=20
+^https://twitter.com/chrisdonato04/status/1302767558471413760?s=20
 Day 102 - 16:44 PDT - Rochester NY - Protesters gather around memorial for Daniel Prude: https://twitter.com/AFriendlyDad/status/1302754905833107456?s=20
 Day 102 - 16:46 PDT - Rochester NY - Protesters chanting: https://twitter.com/AFriendlyDad/status/1302757451054235648?s=20
 ^Rochester NY -[pic: https://twitter.com/CitizenMurphy/status/1302758268620754945?s=20]
-17:02 PDT - Rochester NY - More gather for Daniel Prude: https://twitter.com/msantiagophotos/status/1302758641813028864?s=20
-17:04 PDT - Rochester NY - A man kneels before a makeshift vigil for Daniel Prude at Jefferson Avenue and Dr. Samuel McCree Way.: https://twitter.com/david_andreatta/status/1302759226968887296?s=20
+Day 102 - 17:02 PDT - Rochester NY - More gather for Daniel Prude: https://twitter.com/msantiagophotos/status/1302758641813028864?s=20
+Day 102 - 17:04 PDT - Rochester NY - A man kneels before a makeshift vigil for Daniel Prude at Jefferson Avenue and Dr. Samuel McCree Way.: https://twitter.com/david_andreatta/status/1302759226968887296?s=20
 Day 102 - 17:20 PDT  - Rochester NY -Estimated 300-400 people have now gathered:  https://twitter.com/WXXINews/status/1302763789063000069?s=20
-^[[video: https://twitter.com/adriawalkr/status/1302764270384549892?s=20]]
+^video: https://twitter.com/adriawalkr/status/1302764270384549892?s=20
 Day 102 - 17:23 PDT  - Rochester NY -Community members speak: https://twitter.com/GeofferyRogers/status/1302764167682760704?s=20
 Day 102 - 17:28 PDT  - Rochester NY -Speaking continues, crowd engages with chanting: https://twitter.com/tr00p3rr/status/1302765621101449217?s=20
 Day 102 - 17:29 PDT  - Rochester NY - PD states the crowd estimate is 1000+: https://twitter.com/RochesterNYPD/status/1302765886424711168?s=20
-[pic: https://twitter.com/david_andreatta/status/1302766312637321217?s=20]
+^https://twitter.com/david_andreatta/status/1302766312637321217?s=20
 Day 102 - 17:35 PDT  - Rochester NY - 'Elders' are asked to move to the front of the line to act as the shield for protesters: https://twitter.com/LizJone26271417/status/1302767450769879041?s=20
 Day 102 - 17:38 PDT  - Rochester NY - Protesters are preparing to march: https://twitter.com/AFriendlyDad/status/1302768209544638465?s=20
 Day 102 - 17:39 PDT- Rochester NY- 'Elder Shield' chants "we are elders - we protect our youth!": https://twitter.com/msantiagophotos/status/1302768493222395904?s=20
@@ -2145,7 +2145,7 @@ Day 102 - 18:50 PDT-- Denver CO - Small group of about 50 protesters have gather
 Day 102 - 18:55 PDT- Rochester NY-
 ^https://twitter.com/asklair/status/1302787515812806656?s=20
 ^“The police are protecting a building. That’s what they do. From Walmart to family dollar. They don’t care. They work for companies”
-https://twitter.com/AndrewWHAM/status/1302790675067482112?s=20
+^https://twitter.com/AndrewWHAM/status/1302790675067482112?s=20
 Day 102 - 19:00 PDT- Rochester NY- .https://twitter.com/dmlRESISTS/status/1302790104776429570?s=20
 Day 102 - 19:05 PDT- Rochester NY- 
 ^https://twitter.com/kmstraumane/status/1302790427981090816?s=20
@@ -2181,8 +2181,8 @@ Day 102 - 21:05 PDT- . "your white privilege lifestyle is coming to an end"
 ^https://twitter.com/selfdeclaredref/status/1302821084815937537?s=20
 ^Fight possible, no visual confirmation.
 ^Karen alert in Denver
-Day 102 - 21:10 PDT- Denver CO- Crowds energy is increasing after altercation, confusion: https://twitter.com/LizJone26271417/status/1302821852671143937?s=20
-21:15 Something thrown again. told to stop
+Day 102 - 21:10 PDT- Denver CO - Crowds energy is increasing after altercation, confusion: https://twitter.com/LizJone26271417/status/1302821852671143937?s=20
+Day 102 - 21:15 - Something thrown again. told to stop
 ^Glass Bottle tossed may have been a minto fight in crowd
 ^More tossed
 Day 102 - 21:35 PDT - Los Angeles CA - Protestors arrive at LASD South LA Station.
@@ -2232,22 +2232,22 @@ Day 103 - 05:03 PDT - Portland OR - Jail Support Streams starts for arrested pro
 Day 103 - 05:45 PDT - Portland OR - Per Rosa they didn't start processing protesters til 5:45 (off main woke stream)
 Day 103 - 06:12 PDT - Portland OR - 4 Protesters released (rosa included) (off main woke stream)
 Day 103 - 06:48 PDT - Portland OR - PPB or DHS or FPS harasses protesters for cleaning the streets (off streams) https://www.facebook.com/AdamnCostelloTV/videos/307734856989095/
-Day 103 OS - 10:50 PDT - San Fransisco CA - Police block pedestrian entrance into Golden Gate Bridge. https://twitter.com/renepakmorrison/status/1303030185202077697?s=19
-Day 103 OS - 11:00 PDT - San Fransisco CA - Police block R lane on US-101 (North Bay) SB at Midspan, and stopped all SB traffic on the Golden Gate Bridge:
+Day 103 - 10:50 PDT - San Fransisco CA - Police block pedestrian entrance into Golden Gate Bridge. https://twitter.com/renepakmorrison/status/1303030185202077697?s=19
+Day 103 - 11:00 PDT - San Fransisco CA - Police block R lane on US-101 (North Bay) SB at Midspan, and stopped all SB traffic on the Golden Gate Bridge:
 ^https://twitter.com/johnstallard/status/1303042602074345477?s=19
-Day 103 OS - 11:20 PDT - CHP stationing down entire SB bridge span, all in riot gear:
+Day 103 - 11:20 PDT - CHP stationing down entire SB bridge span, all in riot gear:
 ^https://twitter.com/bkbkbk/status/1303035782999846913?s=20
-Day 103 OS - 12:00 PDT - San Fransisco CA - Police allow protesters to march on pedestrian walkway. https://twitter.com/renepakmorrison/status/1303046093463191553?s=19
-Day 103 OS - 12:30 PDT - San Fransisco CA - Protesters are seen on the bridge: https://twitter.com/UNAINC/status/1303054337397071873?s=19
+Day 103 - 12:00 PDT - San Fransisco CA - Police allow protesters to march on pedestrian walkway. https://twitter.com/renepakmorrison/status/1303046093463191553?s=19
+Day 103 - 12:30 PDT - San Fransisco CA - Protesters are seen on the bridge: https://twitter.com/UNAINC/status/1303054337397071873?s=19
 ^https://twitter.com/API4Biden/status/1303042330480594946?s=19
-Day 103 OS - 12:50 PDT - San Fransisco CA - Heavy police presence still observed, officers in riot gear: 
+Day 103 - 12:50 PDT - San Fransisco CA - Heavy police presence still observed, officers in riot gear: 
 ^https://twitter.com/ginacaliente/status/1303057926664278016?s=20
-Day 103 OS - 12:57 PDT - San Fransisco CA - Police take a bike ride and open lanes back up: https://twitter.com/LuzPenaABC7/status/1303059586232930305?s=20
-Day 103 OS - 13:20 PDT - Seattle WA - Protesters  at Duwamish Longhouse calling to defund SPD:
+Day 103 - 12:57 PDT - San Fransisco CA - Police take a bike ride and open lanes back up: https://twitter.com/LuzPenaABC7/status/1303059586232930305?s=20
+Day 103 - 13:20 PDT - Seattle WA - Protesters  at Duwamish Longhouse calling to defund SPD:
 ^https://twitter.com/DecrimSeattle/status/1303066389607923712?s=20
-Day 103 OS - 13:30 PDT - NYC NY - Protesters gather against 'racist rezonings': 
+Day 103 - 13:30 PDT - NYC NY - Protesters gather against 'racist rezonings': 
 ^https://twitter.com/protest_nyc/status/1303068717169999872?s=20
-Day 103 OS - 13:30 PDT - Tampa Bay FL - Protesters gather at Curtis Hixon Park.
+Day 103 - 13:30 PDT - Tampa Bay FL - Protesters gather at Curtis Hixon Park.
 Day 103 - 14:18 PDT - Salem, OR - mace and shoving in exchanged between BTB and BLM, the groups seperate on their own. no cops on the scene
 Day 103 - 14:28 PDT - Salem, OR - Tensisions still high, groups remain apart for now: https://twitter.com/Clypian/status/1303082507122868224?s=20
 Day 103 - 14:29 PDT - Portland OR - Trump supporters continue caravan toward Salem to join pro-Trump groups: https://twitter.com/PDocumentarians/status/1303083079137857536?s=20
@@ -2332,7 +2332,7 @@ Day 103 - 22: 07 PDT - Seattle WA -  TK chased after vehicle taking Tati off to 
 Day 103 - 22:12 PDT - Rochester NY - protesters and Police stand down https://twitter.com/WillCleveland13/status/1303198751276888064?s=19
 ^https://twitter.com/kilian_roc/status/1303198392689086464?s=19
 Day 103 - 22: 20 PDT - Seattle WA - People begin to gather in front of Harborview Medical Center.
-Day 103 OS - 22:39 PDT - Seattle WA - Nikkita Oliver has arrived to Harborview in response to TK incident.
+Day 103 - 22:39 PDT - Seattle WA - Nikkita Oliver has arrived to Harborview in response to TK incident.
 ^https://twitter.com/NikkitaOliver/status/1303207065553235973?s=20
 ^https://twitter.com/CortanaV/status/1303205789876645888 TO - Seattle - "SPD sending a tactical task force to Harborview"
 Day 103 - 22: 45 PDT - Portland OR - Organizers have announced there will be no direct action this evening. Air quality is poor due to fires in area.
@@ -2352,7 +2352,7 @@ Day 104 - 00:10  PDT -Seattle WA - Small group still outside hospital, mainly re
 Day 104 - 12:30 PDT - Rochester NY - Rochester Police Chief La'Ron Singletary and Deputy Chief Morabito announce they are retiring from the RPD. https://twitter.com/whec_bdavidsen/status/1303410934619213824?s=20
 Day 104 - 14:00 PDT - Dallas, TX - Dallas Police Chief resigns https://www.documentcloud.org/documents/7203932-Letter-of-Resignation-Chief-Renee-Hall-09-08-20.html
 Day 104 - 14:33 PDT - Rochester, NY - Top Rochester Police Officials Are Stepping Down In Response To Daniel Prude's Death - https://www.buzzfeednews.com/article/paulmcleod/rochester-police-officials-resigning-daniel-prude
-Rochester NY - Painting BLACK LIVES MATTER on street
+Day 104 - N/A - Rochester NY - Painting BLACK LIVES MATTER on street
 Day 104 - 17:30 PDT - Rochester, NY - 
 ^https://twitter.com/gsilvarole/status/1303490943132332035?s=20
 ^https://twitter.com/StatusCoup/status/1303513453903175681?s=20
@@ -2421,7 +2421,6 @@ Day 105 - 01:02 PDT - Portland OR - cops rush to make another arrest, seemingly 
 ^https://clips.twitch.tv/IcyColorfulWoodpeckerFutureMan https://clips.twitch.tv/StrangeEnticingFriesM4xHeh
 Day 105 - 01:08 PDT - Portland OR - the person is taken away on a stretcher by ambulance https://clips.twitch.tv/UnusualMistySushiDuDudu
 Day 105 - 01:15 PDT - Portland OR - cops roll out
-Day 104 into 105 WOKE stream has ended for the night
 Day 105 - 10:30 PDT - Seattle WA - Protesters block bridge / highway
 Day 105 - 17:25 PDT - NYC
 ^https://twitter.com/BenDensieski/status/1303855805746286592?s=20
@@ -2443,7 +2442,7 @@ Day 106 - 00:24 PDT - Portland OR - DHS retreat to inside the building. Small nu
 Day 106 - N/A - Portland, OR - https://twitter.com/tedwheeler/status/1304125035578159104?s=19
 Day 106 - 18:40 PDT - Lincoln, NE - 5 People are marching after the organizers didn't show up.
 Day 106 - 21:00 PDT - TeeRex Ep 1 - Teebs and Arex do a joint stream.
-Day 1:07 00:55 - SALEM, OR - CJ is off to go play fireman and save horses and chickens
+Day 107 - 00:55 - SALEM, OR - CJ is off to go play fireman and save horses and chickens
 Day 107 - 12:00 PDT - Los Angeles, CA - LASD forming riot line at NLG press conference https://twitter.com/riotgrrl52/status/1304498506233643008
 Day 107 - 12:52 PDT - Los Angeles, CA - LASD keeps moving the slinky forward, dispersing the people from the parking lot, and has conquered a dumpster
 Day 107 - 17:06 PDT - New Port Richey, FL - Proud Boys harassing the BLM march, seperated by a police line, one Proud Boy is allowed to come up to the protesters, he "joins" the march, chanting ALM etc.
@@ -2463,21 +2462,21 @@ Day 108 - 20:02 PDT - Rochester, NY - pepperballs, protesters retreat a bit, but
 Day 108 - 20:48 PDT - Washington, DC - while bike cops are herding the protesters along the street, someone is giving them a quick teach-in about the first amendment
 Day 108 - 22:35 PDT - Rochester, NY - cops resume to dispersal after 2.5 hours of peaceful singing by the protesters
 Day 108 - 22:36 Remaining 50ish protesters in Rochester retreat and disperse, 1 arrest made. 1 rubber bullet, 1 Pepperball shot
-Day 109 OS - 01: 00 protesters gathered at hospital where LASD sheriffs remain in critical condition after alleged ambush shooting: https://t.co/EjwWVXdL5V
-Day 109 OS - 03:30 PDT - Los Angeles, CA - LASD + LAPD just surrounded Black unity camp at LA city hall. A dispersal order has been given, with no clear route of egress. Cops tell streamer it's "a top secret mission to arrest" people "because they are protesting"
+Day 109 - 01: 00 protesters gathered at hospital where LASD sheriffs remain in critical condition after alleged ambush shooting: https://t.co/EjwWVXdL5V
+Day 109 - 03:30 PDT - Los Angeles, CA - LASD + LAPD just surrounded Black unity camp at LA city hall. A dispersal order has been given, with no clear route of egress. Cops tell streamer it's "a top secret mission to arrest" people "because they are protesting"
 ^https://www.instagram.com/p/CFEuHspHx7U/
 ^https://twitter.com/jintakhan/status/1305094316436549633
 DAY 109 - 03:48 PDT - OFF MAIN WOKE STREAM - Los Angeles, CA - Sheriff Busses arrive
-04:20 PDT - Los Angeles CA - LAPD is there as "Security" Keeps sending press back and forth between agencies for information
+Day 109 - 04:20 PDT - Los Angeles CA - LAPD is there as "Security" Keeps sending press back and forth between agencies for information
 ^https://twitter.com/itsa_talia/status/1305098070288334848?s=19
-Day 109 OS - 06:09 PDT - Los Angeles - LAPD bringing in a unit to cite leftover protesters and press. LAPD tells people to leave or they'll be cited / or arrested
-Day 109 OS - 07:33 PDT - Los Angeles - Shift change new officers "protecting" a public park - some of the old ones are still around/
-Day 109 OS - 07:43 PDT - Los Angeles - LAPD and LASD start getting riot gear on
-Day 109 OS - 08:00 PDT - Los Angeles - LAPD/LASD Charge
-Day 109 OS - 08:00 PDT - Los Angeles - Acatwithnews arrested - and unconcious on the ground
-Day 109 OS - 08:04 PDT - Los Angeles - Next rush and arrest
-Day 109 OS - 08:21 PDT - Los Angeles -  Acatwithnews sitting up now getting looked at by LFD EMTs and put onto a stretcher
-Day 109 OS - 08:34 PDT - Los Angeles - Talia arrested while streaming
+Day 109 - 06:09 PDT - Los Angeles - LAPD bringing in a unit to cite leftover protesters and press. LAPD tells people to leave or they'll be cited / or arrested
+Day 109 - 07:33 PDT - Los Angeles - Shift change new officers "protecting" a public park - some of the old ones are still around/
+Day 109 - 07:43 PDT - Los Angeles - LAPD and LASD start getting riot gear on
+Day 109 - 08:00 PDT - Los Angeles - LAPD/LASD Charge
+Day 109 - 08:00 PDT - Los Angeles - Acatwithnews arrested - and unconcious on the ground
+Day 109 - 08:04 PDT - Los Angeles - Next rush and arrest
+Day 109 - 08:21 PDT - Los Angeles -  Acatwithnews sitting up now getting looked at by LFD EMTs and put onto a stretcher
+Day 109 - 08:34 PDT - Los Angeles - Talia arrested while streaming
 Day 110 - 15:30 PDT - Lancaster, PA -Officer involved shooting in Lancaster City; Crowds gathering and beginning to hold protest group. 
 ^https://twitter.com/AndreaTVNews/status/1305274888555507713?s=20
 ^https://twitter.com/stillgray/status/1305283017762512896?s=20
@@ -2500,15 +2499,15 @@ Day 110 - 22:00 PDT - Lancaster PA - People blocking intersection: https://twitt
 Day 109 - 18:47 - St. Charles, MO - Cops chasing people for srrests, arrest the only streamer from passenger seat
 ^https://twitter.com/greg_doucette/status/1305358457810411522
 Day 110 - 20:40 PDT - Lancaster PA - Protestors still occupying the streets outside of the Lancaster Bureau of Police building.
-Day 110 OS - 21:20 PDT - Lancaster PA - "Lancaster PA police HQ right now. Getting closer to police lines." - https://twitter.com/thelancpatriot/status/1305360649464303617
+Day 110 - 21:20 PDT - Lancaster PA - "Lancaster PA police HQ right now. Getting closer to police lines." - https://twitter.com/thelancpatriot/status/1305360649464303617
 Day 109 - 21:27 PDT - Lancaster PA - unlawful assembly declared
 Day 109 - 21:27 PDT - Lancaster PA - teargas
 ^https://twitter.com/ChillStableGuy/status/1305363556389486593 https://twitter.com/thelancpatriot/status/1305363558071496704
 ^https://twitter.com/ElijahSchaffer/status/1305363622630170626
-Day 110 OS - 21:35 PDT - Lancaster PA - Riot line forming to push down ramp at LPD HQ. Tear gas deployed. - https://twitter.com/thelancpatriot/status/1305365711792091137
-Day 110 OS - 21:37 PDT - Lancaster PA - Riot line starts pushing down the ramp.
-Day 110 OS - 21:42 PDT - Lancaster PA - Riot line continues to push down the ramp. Several injuries from pepper spray and tear gas. Medics attending.
-Day 110 OS - 21:44 PDT - Lancaster PA - LPD fire "less"-lethals at protestors. Protestor injured and carried away.
+Day 110 - 21:35 PDT - Lancaster PA - Riot line forming to push down ramp at LPD HQ. Tear gas deployed. - https://twitter.com/thelancpatriot/status/1305365711792091137
+Day 110 - 21:37 PDT - Lancaster PA - Riot line starts pushing down the ramp.
+Day 110 - 21:42 PDT - Lancaster PA - Riot line continues to push down the ramp. Several injuries from pepper spray and tear gas. Medics attending.
+Day 110 - 21:44 PDT - Lancaster PA - LPD fire "less"-lethals at protestors. Protestor injured and carried away.
 Day 110 - 21:50 PDT - Lancaster PA - [OFFSTREAM] LPD retreat back to top of ramp after clearing protestors off the ramp.
 Day 109 - 22:00 PDT - Lancaster PA - protesters are moving barricades onto the ramp
 ^https://twitter.com/ChillStableGuy/status/1305370841178349568
@@ -2525,7 +2524,7 @@ Day 110 - 11:58 PDT - Sacramento, CA - another car plows through the crowd, no s
 Day 110 - 13:00 PDT - Sacramento, CA - cop car plows through the crowd, one person injured https://twitter.com/dootdoot5/status/1305600892817690624
 Day 110 - 13:32 PDT - Sacramento, CA - the person injured by the cops  car is taken away by ambulance
 Day 111 - 18:45 PDT - Kenosha - activist rumored to have been arrested. Group gathering.
-DAY 112 OS - 06:30 PDT - Rochester NY - Protesters Occupy steps of Public Saftey Building calling for resignation of mayor and other officials
+DAY 112 - 06:30 PDT - Rochester NY - Protesters Occupy steps of Public Saftey Building calling for resignation of mayor and other officials
 Day 111 - 14:00 PDT - Seattle, WA - planned start of FTP march https://twitter.com/KatieDaviscourt/status/1306045981209714688
 DAY 111 - 15:27 PDT - Seattle, WA - 1 arrest at FTP march
 DAY 111 - 15:28 PDT - Seattle, WA - cops rush the group on the sidewalk, arrests made
@@ -2539,7 +2538,7 @@ DAY 111 - 18:16 PDT - Philadelphia, PA -  marchers want to go on highway, cops s
 DAY 111 - 18:19 PDT - Philadelphia, PA - those who were behind the cop line turn around, march continues in the city
 ^https://twitter.com/JPeters2100/status/1306040372414558209
 DAY 111 - 18:37 PDT - Philadelphia, PA - philly march ends
-Day 112  21:08 - Rochester NY - occupy street overnight camping infront of city call where protestors took down flag and put up black lives matter flag. they gave the flag back to the police department.
+Day 112 - 21:08 - Rochester NY - occupy street overnight camping infront of city call where protestors took down flag and put up black lives matter flag. they gave the flag back to the police department.
 Day 112 - 5:09am PDT - Rochester NY - RPD shows up to clear city hall occupation
 Day 112 - 06:14 PDT - Rochester NY - warning to leave the street and get on the sidewalk or face arrest "immediately"
 Day 112 - 06:48 PDT - Rochester NY - chud comes in shouting blue lives matter but is quickly removed by cops and apparently arrested
@@ -2569,8 +2568,8 @@ Day 114 - 15:05 PDT - Manhattan NY - another arrest
 Day 114 - 15:15 PDT -Manhattan NY - 3rd arrest made
 Day 115 - 15:16 PDT - Manhattan NY -  unlawful in the road announcment warning
 DAY 114 - 15:36 PDT - Louisville KY - person in car pulls gun out on protesters marching
-Day 114 PDT 15:45 PDT NYC - NY ABOVE ARE ALL NYC ^ BTW - but another push  arrests made approx 8 total now no actual amount.
-Day 114 PDT 15:45 PDT Cops beat protesters indiscriminently
+Day 114 - PDT 15:45 PDT NYC - NY ABOVE ARE ALL NYC ^ BTW - but another push  arrests made approx 8 total now no actual amount.
+Day 114 - PDT 15:45 PDT Cops beat protesters indiscriminently
 Day 114 - 20:59 PDT - Portland OR - Protestors arrive at ICE facility. Feds make announcement to stay away.
 Day 114 - 21:04 PDT - Portland OR - Feds make another announcement to not to attempt to damage the facility.
 Day 114 - 21:08 PDT - Portland OR - Feds make another announcement. Also reports of OSP en route.
@@ -2640,7 +2639,7 @@ Day 115 - 18:42 PDT - Nashville, TN -
 Day 115 - 18:42 PDT - Rochester, NY - Crowd listens to speaker
 Day 115 - 18:42 PDT - San Diego, CA -
 Day 115 - 18:42 PDT - Virginia Beach VA - Protest wraps up.
-odx dancing https://twitter.com/MathieuLRolland/status/1307551530816548867?s=20
+Day 115 - N/A - N/A - odx dancing https://twitter.com/MathieuLRolland/status/1307551530816548867?s=20
 Day 116 - 01:30 PDT - Portland, OR - Cops come out to clear the street
 Day 116 - 01:37 PDT - Portland, OR - cops roll out after successfully not having done anything
 Day 116 - 11:00 PDT - New York City, NY - march by Extinction Rebellion + BLM under the motto "there is no climate justice without racial justice" starts at Columbus circle
@@ -2655,7 +2654,7 @@ Day 116 - 20:45 PDT - Portland OR -  Protesters calling for a sit-in "to stop sy
 ^https://twitter.com/mallisonKATU/status/1307901420184559618?s=20
 Day 116 - 20:50 PDT - Portland OR -  Unknown individuals have been documented throwing glass bottles down from a balcony  toward the crowd. ~6 OR 7 bottles have hit the street & neighboring properties. Location identified as North Portland on Mississippi.
 ^https://twitter.com/45thabsurdist/status/1307890013489618945?s=20
-Day 116 ~2100 PDT - Portland OR - Someone from the group of marchers shoots off several paint balls toward the direction of the individuals who are throwing glass bottles from the balcony: 
+Day 116 - 21:00 PDT - Portland OR - Someone from the group of marchers shoots off several paint balls toward the direction of the individuals who are throwing glass bottles from the balcony: 
 ^https://twitter.com/FriedrichHayek/status/1307905267346993153?s=20
 ^Voice from the crowd urges agitated individuals to ignore the balcony people and deescalates the issue.
 Day 116 - 21:27 PDT - Portland OR -  Balcony folks from the property gave access to protesters to hang a banner reading “eviction is violence” from the railing of the building. 
@@ -2670,7 +2669,7 @@ Day 116 - 22:00 PDT - Portland OR - "The family has invited people to camp out o
 Day 116 - 22:12 PDT - Portland OR - Groups dances soulja boy together. vibe is calming down.
 Day 116 - 22:20 PDT - Portland OR -  Dancing continues. Good vibe all around.
 Day 116 - 22:25 PDT - Portland OR -  Energy seems to be increasing; voices louder.
-Day 117 OS - 08:30 PDT - Charlotte, NC - mass arrest at Jail support 26 or 27 arrests https://www.facebook.com/charlotteuprising/videos/348312163029148
+Day 117 - 08:30 PDT - Charlotte, NC - mass arrest at Jail support 26 or 27 arrests https://www.facebook.com/charlotteuprising/videos/348312163029148
 Day 117 - 21:14 PDT - Portland OR - Residents come out of their homes to look at those marching in the street.https://twitter.com/PDocumentarians/status/1308258188429410305?s=20
 Day 117 - 21:15 PDT - Portland OR - Protesters marching & chanting.
 ^https://twitter.com/MrOlmos/status/1308258378213470218?s=20
@@ -2679,9 +2678,9 @@ Day 117 - 21:30 PDT - Portland OR - Protesters arrive at station.
 ^https://twitter.com/CommiesLmao/status/1308264495282819073?s=20
 Day 117 - 21:35 PDT - Portland OR - https://twitter.com/PortlandPolice/status/1308263835199971330?s=20
 Day 117 - 21:45 PDT - Portland OR - LRAD
-Day 118 OS - 18:20 PDT - Seattle city council votes to overturn 3 bills vetod by mayor Durkan.  119825, 119862, and 119863
-Day 119 OS - 10:20 PDT - Louisville KY - Grand Jury indicts LMPD Detective Hankison with 3 counts of Wanton Endangerment (Class D Felony) for shooting into an adjacent apartment.  15k Bond.  No other charges listed for any officers in regards to Breonna Taylor's death.
-Day 119 OS - 10:40 PDT - Louisville KY - Crowd gathered at Bree Way begin to march into the streets, one fire already put out
+Day 118 - 18:20 PDT - Seattle city council votes to overturn 3 bills vetod by mayor Durkan.  119825, 119862, and 119863
+Day 119 - 10:20 PDT - Louisville KY - Grand Jury indicts LMPD Detective Hankison with 3 counts of Wanton Endangerment (Class D Felony) for shooting into an adjacent apartment.  15k Bond.  No other charges listed for any officers in regards to Breonna Taylor's death.
+Day 119 - 10:40 PDT - Louisville KY - Crowd gathered at Bree Way begin to march into the streets, one fire already put out
 Day 119 - 11:28 PDT - (Off Stream) Louisville KY - Crowd halts march to get organized, shields in the front and water break after march running for 30+ minutes
 Day 119 - 11:31 PDT - (Off Stream) Louisville KY - march continutes and police line follows one block back
 Day 119 - 12:31 PDT - Louisville KY - Single Firework/firecracker crowd not happy about it.
@@ -2752,9 +2751,9 @@ Day 119 - 19:42 PDT - Louisville, KY - Water bottle tossed, pepperballs shot. po
 Day 119 - 19:53 PDT - Louisville, KY - LMPD riot line moves up
 Day 119 - 19:57 PDT - Louisville, KY - police advancing; attempting to kettle
 Day 119 - 20:01 PDT - Louisville, KY - pepperballs at kettled protesters
-Day 119 Earlier  - Buffalo NY - truck dived into crowd, shots fired (lack more details)https://twitter.com/FJNewsReporter/status/1308969145489395712?s=20
-Day 119 Earlier  - Vegas NV - earlier shooting?
-Day 119 Earlier  - Denver -  car drives thru crowd? https://twitter.com/ShellyBradbury/status/1308968971287384064?s=20
+Day 119 - N/A - Buffalo NY - truck dived into crowd, shots fired (lack more details)https://twitter.com/FJNewsReporter/status/1308969145489395712?s=20
+Day 119 - N/A - Vegas NV - earlier shooting?
+Day 119 - N/A - Denver -  car drives thru crowd? https://twitter.com/ShellyBradbury/status/1308968971287384064?s=20
 Day 119 - 20:30 PDT - Louisville, KY - Reports of looting  https://twitter.com/AmericanVoice18/status/1308989701706182659?s=20 (time of video unclear)
 Day 119 - 21:08 PDT - Denver, CO - denver? smoke maybe teargas
 Day 119 - 21:11 PDT - Denver, CO - pepperballs
@@ -2847,7 +2846,7 @@ Day 121 - 23:32 PDT - Sacramento CA - March winding down and protestors exiting 
 Day 121 - 23:38  PDT Woke Stream has ended for the night
 Day 122 - Rochester NY - Rochester Mayor Lovely Warren appoints new interim police chief Cynthia Harriet Sullivan as the city’s new police chief, effective October 14th, 2020. 
 ^https://youtu.be/EEV9JWQT7BQ
-11:43 PDT - NATICK MA - Diana ploss gets yelled at by the cops
+Day 122 - 11:43 PDT - NATICK MA - Diana ploss gets yelled at by the cops
 Day 122 - 15:01 PDT - Yorba Linda, CA - Physical altercation between streamer and protestors (BLM) on one side and counterprotestors (BTB) on the other
 Day 122 - 15:04 PDT - Yorba Linda, CA - BLM protestors attempt to get police nearby for aid; BLM protestors are pepper-sprayed (unknown if BTB or police)
 Day 122  - Yorba Linda, CA - (thread) tensions between the groups and pics of car situation(edit later for description): https://twitter.com/Brian_Rokos/status/1309974101016981504?s=20
@@ -2862,15 +2861,15 @@ Day 122 - 17:30 PDT  - New York City, NY - LRAD telling people to clear the stre
 Day 122 - 18:05 PDT - Louisville (KY), Rochester (NY), Seattle (WA), Dallas (TX) all marching
 Day 122 - 18:15 PDT - Louisville, KY- Houseless man is arrested for 'breaking curfew'.
 ^https://twitter.com/KallieECox/status/1310027567446065152?s=20
-Day 122 OS - 18:25 PDT - Louisville, KY- Hyatt Regency under Nat Guard watch.
+Day 122 - 18:25 PDT - Louisville, KY- Hyatt Regency under Nat Guard watch.
 ^https://twitter.com/BGOnTheScene/status/1310027534311084032?s=20
 Day 122 - 19:04 PDT - Seattle, WA - Cops walk up to the protesters who erected a burning barricade, declare unlawful assembly immediately
 Day 122 - 19:11 PDT - seattle police line advances on protestors, firing various munitions
 Day 122 - 19:13 PDT - Seattle, WA - multiple arrests
 Day 122 - 19:46 PDT - Seattle, WA - cops clear the barricade
 Day 122 - 19:49 PDT - Seattle, WA - cops beat up people with their bikes and make arrests, including one medic
-20:14 PDT - Rochester NY -  Organizer? tells everyone to be quiet(off woke audio but on stream)
-20:15 PDT - Rochester NY - protesters go back to chanting, Breonna Taylor :drum: Daniel Prude :drum:  (off woke audio but on stream) then go quiet again
+Day 122 - 20:14 PDT - Rochester NY -  Organizer? tells everyone to be quiet(off woke audio but on stream)
+Day 122 - 20:15 PDT - Rochester NY - protesters go back to chanting, Breonna Taylor :drum: Daniel Prude :drum:  (off woke audio but on stream) then go quiet again
 Day 122 - 21:00 PDT - Portland, OR - LRAD prompting the protesters to leave the street in front of IJC
 Day 122 - 21:14 PDT - Portland, OR - cops approach, people leave the street
 Day 122 - 21:16 PDT - Portland, OR - multiple arrests, presumably for being in the street
@@ -2899,12 +2898,12 @@ Day 123 - 00:04 PDT - Portland, OR - person is carried into the paddy wagon
 Day 123 - 00:07 PDT - Portland, OR - Police advance, pushing protestors down street
 Day 123 - 00:12 PDT - Portland, OR - Police aggressively advancing again
 Day 123 - 00:17 PDT - Portland, OR - Police retreat, leave area
-Day 123 OS - 14:55 PDT - Los Angeles, CA - Small group of protesters gathered at street corner: https://twitter.com/Jechava/status/1310337581259739136?s=20
-Day 123 OS - 16:30 PDT - Gainesville, TX - Small group of protesters march in residential neighborhood.
-Day 123 OS - 16:30 PDT - Seattle, WA - Good  sized crowd have organized in the streets
+Day 123 - 14:55 PDT - Los Angeles, CA - Small group of protesters gathered at street corner: https://twitter.com/Jechava/status/1310337581259739136?s=20
+Day 123 - 16:30 PDT - Gainesville, TX - Small group of protesters march in residential neighborhood.
+Day 123 - 16:30 PDT - Seattle, WA - Good  sized crowd have organized in the streets
 ^https://twitter.com/00Faria/status/1310359168092528641?s=20
 Day 123 - 17:13 PDT - Woke stream starts
-Day 123 OS - Washington DC - several arrests made https://twitter.com/rawsmedia/status/1310039420716888066?s=20 + https://twitter.com/rawsmedia/status/1310092937670340621?s=20
+Day 123 - Washington DC - several arrests made https://twitter.com/rawsmedia/status/1310039420716888066?s=20 + https://twitter.com/rawsmedia/status/1310092937670340621?s=20
 Day 123 - 19:25 PDT -  Kenosha, WI and Portland, OR - Small groups remain gathered, listening to speakers.
 Day 123 - 19:30 PDT -  Louisville, KY - March begins to near the end. 
 ^https://twitter.com/BGOnTheScene/status/1310404142523973632?s=20
@@ -2977,6 +2976,226 @@ Day 125 - 23:31 PDT - Portland, OR - Several police vehicles roll out of the sta
 Day 125 - 23:32 PDT - Portland, OR - LRAD "the Penumbra Kelly building is closed....you must leave" announcement. x3
 Day 125 - 23:42 PDT - Portland, OR -  Officer #66 targets protester and rushes at him. weird interaction. 66 smiles as he walks back.
 Day 125 - 23:45 PDT - Portland, OR - Crowd begins thinning out, police remain in area.
+Day 126 - 19:44 PDT - Springfield OR - Mace used from counter protestor
+^https://twitter.com/jwcroxton/status/1311508597117837313?s=20
+DAY 126 - 21:12 PDT - Portland OR - Patrick Kimmons's mother speaks to crowd.
+DAY 126 - 21:12 PDT - Springfield, OR - The "official" protest is over. Some "...fair amount of confrontation as the two groups disperse..." noted:
+^https://twitter.com/CFrancisOLeary/status/1311517523502743553?s=20
+Day 126 - 22:15 PDT - Sacramento CA - Protestors marching in Sacramento.
+Day 126 - 22:20 PDT - Seattle CA - SPD Bike cop gang rolling around.
+Day 127 - 08:18 PDT - Rochester, NY - police arresting protesters outside the Presser by the suspened RPD cops
+^https://twitter.com/WillCleveland13/status/1311685535665192962
+^https://twitter.com/WillCleveland13/status/1311685754091974656
+^https://twitter.com/WillCleveland13/status/1311686174763778048
+^https://twitter.com/WillCleveland13/status/1311691278061629442?s=19
+Day 127 - 10:05 PDT - New York City, NY -around 12 arrests at housing protest in new york for placing furniture on the street 
+^https://twitter.com/housing4allNY/status/1311702472835117057
+^https://twitter.com/sydneyp1234/status/1311712345845006338
+Day 127 - 21:54 PDT - Trump tests positive for COVID-19. - https://twitter.com/realDonaldTrump/status/1311892190680014849
+^RNC chair also tests positive for Covid https://www.nytimes.com/2020/10/02/us/elections/ronna-mcdaniel-chairwoman-of-the-rnc-tests-positive-for-the-coronavirus.html
+^Kellyanne Conway has covid
+^https://twitter.com/JamieMcCarty/status/1312207606430138368?s=20
+Day 128 - Louisville KY - Breonna Taylor grand jury recordings released https://www.bbc.com/news/world-us-canada-54391432
+day 128 - 11:53 AM PST- NYC NY - Protesters occupy inside of sheraton and outside. 1 arrested so far
+day 128 - 11:54 AM PDT- NYC NY - 2 more arrested and walked out
+day 128 - 11:55 AM PDT- NYC NY - 2 more arrested and walked out while chanting as they get led out
+day 128 - 11:57 AM PDT- NYC NY - 1 more arrested and walked out
+day 128 - 11:58 AM PDT- NYC NY - 2 more arrested and walked out i think there was another one but i turned away for a second
+day 128 - 12:00 PM PDT- NYC NY -2 more arrested and walked out
+day 128 - 12:03 PM PDT- NYC NY -1 more arrested and walked out
+day 128 - 12:04 PM PDT- NYC NY -2 more arrested and walked out while shouting and chanting  CARE NOT COPS HOMES NOT SHELTERS
+day 128 - 12:07 PM PDT- NYC NY 1 more arrested and walked out
+day 128 - 12:11 PM PDT- NYC NY 2 more arrested and walked out chanting  CARE NOT COPS HOMES NOT SHELTERS
+day 128 - 12:12 PM PDT- NYC NY Last one more arrested and walked out
+^17 (18) in total arrested
+day 128 - 11:53 AM PST- NYC NY - Protesters occupy inside of sheraton and outside. 1 arrested so far
+DAY 128 - 12:26 PDT - NYC NY - Protesters that were arrested rock the transport bus
+DAY 128 - 12:27 PDT - NYC NY - LRAD says there are protesters unlawfully blocking the roadway
+Day 128 - Rochester NY - Rochester Mayor Lovely Warren indicted by grand jury, charged with scheme to defraud 
+^https://www.rochesterfirst.com/local-politics/monroe-county-district-attorney-to-make-announcement-on-new-york-state-board-of-elections-investigation/
+^free them all march in NYC escorted by massive police presence
+Day 128 - 6:07 PDT - Kansas City, MO - starts occupying ??????something
+Day 128 - N/A - Rochester NY - Protesters drive from city hall to Monroe County District Attorney Sandra Dooley house, tho most of the cars get lost along the way or break off
+^https://twitter.com/RisePDX/status/1312253749444841472?s=19
+Day 129 - N/A - Portland OR - PPB arrests. Bike cop apparently ran over protestor with a motorcycle. Protestor appears uninjured. Arrest of a mutual aid medic who would not leave the injured. - https://streamable.com/jy4da8 - 
+^https://streamable.com/nfuykg
+^https://streamable.com/9blh1i
+^https://streamable.com/8va4qg
+Day 129 - 00:12 PDT - Portland OR - Protestor having some sort of medical emergency. PPB hangs over wall yelling at Mutual Aid and protestors who were protecting the injured.
+Day 129 - 00:22 PDT - Portland OR - PPB escort a medic out. Protestors refuse help from medic.
+Day 129 - 00:24 PDT - Portland OR - PPB retreats back onto the MCSO property.
+Day 129 - N/A - Seattle WA - Joey Wieser (streamer) arrested in Seattle. (unsure of time) - https://streamable.com/gixn70
+Day 129 - 01:50 AM PDT - protesters still infront of the MCSO and apparently they arrested the person that was run over. TLDR: It took too long at the hospital, she came back to go to a different hospital, and cops arrested her (Assfault stream on INTL)
+Day 129 - 10:18 AM PDT - DC - arrest of BLM protesters at Trump Walk Away rally - https://twitter.com/rawsmedia/status/1312447763854974976
+Day 129 - 16:40 PDT - Beverly Hills, CA - Reporter interviews an interesting pro-Trump protester.
+Day 129 - 17:00 PDT - Los Angeles, CA; Seattle, WA; Bakersfield, CA; Rochester, NY; Phoenix, AZ - Groups marching in the streets.
+Day 129 - N/A - Seattle, WA - Something happening in front of a Goodwill. (unsure why, right now)
+^https://twitter.com/IamBday/status/1312545066573938689?s=20
+Day 129 - 17:55 PDT - Rochester NY - RPD form riot line in after protesters move both barricades out of the way
+Day 129 - 18:01 PDT - Rochester, NY - Water bottle tossed. Police seting up new barricade
+Day 129 - 19:00 PDT - Beverly Hills, CA - Pro-Trump and counter protesters argue at each other across the street.
+Day 129 - 19:02 PDT - Omaha, NE - Protesters marching downtown, on the sidewalk. Small group.
+Day 129 - 19:02 PDT - Rochester, NY - Protesters continue marching in the streets.
+Day 129 - 19:05 PDT - Los Angeles, CA - Protester arrested  (Trump supporter, possibly drunk)
+Day 129 - 19:30 PDT - Rochester, NY - protesters arrive back at MLK park and disperse
+Day 129 - 20:25 PDT - Seattle, WA - Protesters continue marching in the street.
+Day 129 - 20:35 PDT - Seattle WA - SPD Bike cops rolling through the street. Appear to be looking for protestors.
+Day 129 - 21:03 PDT- Seattle WA - dispersal order after property damage https://twitter.com/SeattlePD/status/1312605042751401985?s=19
+Day 129 - 21:08 PDT - Seattle WA - SPD make arrests while continuing to push protestors up the street.
+Day 129 - 21:11 PDT - Seattle WA - SPD continuing to push protestors. Fireworks deployed.
+Day 129 - 21:11 PDT - Seattle WA -pointing mace at joey
+Day 129 - 21:11 PDT - Seattle WA -lrad saying that protesters are participating in criminal mischeif
+Day 129 - 21:12 PDT - Seattle WA -amongst the chaos and MOOOOVES and DISPEEEERSE protesters start doing chants and playing on the ukelele and drums again
+Day 129 - 21:22 PDT - Seattle WA - SPD continuing to arrest protestors. Firing pepper balls into the crowd.
+Day 129 - 21:24 PDT - Seattle WA - Protestors are back at Cal Anderson park. SPD states park is closed.
+Day 129 - 21:28 PDT - Seattle WA - SPD sweeping through Cal Anderson park looking to arrest protestors.
+Day 129 - 21:30 PDT - Seattle WA - SPD now harassing the houseless in the park and waking them up to leave the park.
+Day 129 - 22:15 PDT - Seattle WA - Protestors start marching away from Cal Anderson Park.
+Day 129 - 22:40 PDT - Los Angeles CA - Armenian protestors block the 101 near Hollywood. CHP tell them they can leave without arrests.
+Day 129 - 22:49 PDT - Los Angeles CA - Traffic starting to open. A few cars are stuck.
+Day 129 - 22:54 PDT - Seattle WA - SPD form line near protestors. Protestors chant "move back". SPD leaves the area.
+Day 129 - 23:00 PDT - Seattle WA - Protestors marching again.
+Day 129 - 23:15 PDT - Seattle WA - SPD Bike Gang makes appearance near protestors.
+Day 129 - 23:17 PDT - Seattle WA - Chud makes appearance as well. Leaves shortly after being asked to go. Protestors start to march again.
+Day 129 - 23:37 PDT - Los Angeles CA (Hollywood) - Armenian protestors in Hollywood raising awareness of conflict between Armenia and Azerbaijan.
+Day 130 - 19:48 PDT - seattle - arrest streamer claims to be illegal
+Day 130 - 21:30 PDT- Portland OR - Crowd beginning to gather
+Day 130 - 21:50 PDT- Portland OR - Crowd beginning to march
+Day 130 - 21:58 PDT- Portland OR - PPB LRAD announces that "vandalism of the courthouse will not be tolerated" and advises the march that they are not allowed in the street.
+Day 130 - 22:10 PDT- Portland OR - Crowd gathered in street trying to find courthouse
+Day 130 - 22:15 PDT- Portland OR - PPB LRAD repeats announcements
+Day 130 - 22:16 PDT - Portland OR - MCSO come out to defend the courthouse.
+Day 130 - 22:20 PDT- Portland OR - Crowd chanting at PPB officers
+Day 130 - 22:23 PDT - Portland OR - PPB Riot van shows up with several cops. Start pushing protestors down the street.
+Day 130 - 22:25 PDT - Portland OR - PPB arrest protestor.
+Day 130 - 22:30 PDT- Portland OR - Crowd on opposite corner from PPB playing music and chanting
+Day 130 - 22:35 PDT- Portland OR - Crowd moves to march
+Day 130 - 22:43 PDT - Portland OR - Protestors arrive at Injustice Center/Federal Courthouse.
+Day 130 - 23:00 PDT - Portland OR - Protestors start to march again after holding space near the Injustice center.
+Day 130 - 23:00 PDT - Los Angeles CA (Hollywood) - Armenian protestors continue to hold space near the CNN building.
+Day 130 - 23:06 PDT - Portland OR - Protestors arrive at Portland City Hall.
+Day 130 - 23:15 PDT - Portland OR - PPB vehicles and officers arrive
+Day 130 - 23:18 PDT - Portland OR - Protestors practicing as PPB vehicles and officers drive by and get out in front of them
+Day 130 - 23:19 PDT - Portland OR - PPB out and start making arrests. PPB stealing personal property from protestors. - https://twitter.com/cdsupriyadi/status/1313002297266380800
+Day 130 - 23:06 PDT - Portland OR - twitter post of protestor hit by rubber bullet https://twitter.com/PDocumentarians/status/1312997624631357445
+Day 130 - 23:24 PDT - Portland OR - PPB make another arrest.
+Day 130 - 23:25 PDT - Portland OR - Several aggressive arrests made
+Day 130 - 23:36 PDT - Portland OR - PPB riot squad leave the front of City Hall.
+Day 130 - 23:50 PDT - Portland OR - Protest appears to be over, protestors going home
+Day 131 - 15:05 PDT - DC - [OFF STREAM] "DC Park police come to home of Mutual Aid organizer. Protesters quickly arrive & ask them to leave." - https://twitter.com/ChuckModi1/status/1313238804384358401
+Day 131 - 18:30ish PDT - Wolfe City TX - Fight breaks out at a Jonathan Price memorial vigil with "counter-protestors" there to "stop the looting"
+Day 131 - 19:00 PDT - Wolfe City TX - cops say that man who pointed weapon at crowd will face charges after letting him leave but walks away from group after furthering questioning
+Day 131 - 19:10 PDT - Vancouver WA - BTB crowd gathered on overpass. Many children present.
+Day 131 - 19:10 PDT - NYC NY - Several groups gathered on multiple corners of street with lots of police presence.
+Day 131 - 19:40 PDT - NYC, NY - first arrest
+Day 131 - 20:30 PDT - Portland OR - Crowd has gathered and is chanting
+Day 131 - 21:00 PDT - Portland OR - Protesters begin marching.
+Day 131 - 21:10 PDT - NYC NY - Protestors begin marching.
+Day 131 - 21:15 PDT - Portland OR - Protestors arrive at the Injustice Center.
+Day 131 - 21:30 PDT - Los Angeles (DTLA) CA - Protestors lined up against LAPD in DTLA near LAPD HQ.
+Day 131 - 21:30 PDT - Seattle WA - Protestors marching.
+Day 131 - 21:37 PDT - NYC NY - NYPD make arrest. Start shoving protestors around.
+Day 131 - 21:40 PDT - Seattle WA - SPD Bike Gang roaming with cruisers and riot van close by.
+Day 131 - 21:45 PDT - Los Angeles (DTLA) CA - Protestors begin marching.
+Day 131 - 21:48 PDT - NYC NY - NYPD LRAD giving warning to leave the road way or face arrest.
+Day 131 - 21:51 PDT - Seattle WA - SPD Bike Gang form riot line. Protestors chant "move back".
+Day 131 - 21:52 PDT - NYC NY - NYPD make arrest.
+Day 131 - 21:53 PDT - Seattle WA - Protestors marching again.
+Day 131 - 23:09 PDT - Portland OR - Protestors continuing to march. Making laps around downtown.
+Day 131 - 23:10 PDT - Seattle WA - Protestors in Seattle also continue to march.
+Day 132 - 00:00 PDT - Portland OR - Protestors still marching. No eyes on PPB.
+Day 132 - 21:30 PDT - Eugene, OR - Protesters gather and chant together. Decent size crowd tonight.
+Day 132 - 21:40 PDT - Eugene, OR - Crowd stopped to gather at intersection.
+Day 132 - 21:45 PDT - Eugene, OR - crowd moving again
+Day 132 - 21:55 PDT - Portland, OR - Crowd has also been marching, just stopped at ICE.
+Day 132 - 22:42 PDT - Portland, OR - Crowd outside ICE building still chanting, listening to music as almost 40 minutes pass the 'two minute warning' given earlier. 
+^https://twitter.com/hungrybowtie/status/1313715680273809408
+Day 132 - 22:51 PDT - Portland, OR - Protester throws a smoke bomb onto the roof of the ICE building.
+^https://twitter.com/1misanthrophile/status/1313718373163831297
+Day 132 - 22:55 PDT - Portland, OR - Cop lines come out and start to push protestors out with tear gas.
+Day 132 - 22:58 PDT - Portland, OR - Gas finally disperses.
+Day 132 - 23:01 PDT - Portland, OR - More smoke deployed. Grey colored and green colored.
+Day 132 - 23:30 PDT - Portland, OR - Elder Vietnam vet resident taken away by ambulance due to police/ice/dhs shooting tear gas entering their home and they have respiratory issues.
+Day 133 - 00:08 PDT - Portland OR - LRAD Disperse warning/ 2 arrests
+Day 133 - 00:010 PDT - Portland OR - LRAD Disperse warnings/3rd arrest
+Day 133 - 00:13 PDT - Portland OR -trumpet man arrest
+Day 133 - 00:14 PDT - Portland OR - no$hu arrest
+Day 133 - 00:17 PDT - Portland OR - 3 officers bull rush and steal music bloc speaker
+Day 133 - 01:20 PDT - Portland OR - Woke Day 132 to Day 133 Stream Ends.
+Day 133 - 14:00 PDT - Milwaukee, WI - Large group forming outside the Public Safety Building where the family of Alvin Cole and the DA have been meeting. The decision of the case is anticipated to be announced some time this afternoon. 
+^https://twitter.com/MaryJoOlaTV/status/1313948398509346817?s=20
+^https://twitter.com/MKEDefenders/status/1313950954719457280?s=20
+DAY 133 - 15:00 PDT - Milwaukee WI - Milwaukee County DA will not charge Wauwatosa Police Officer Joseph Mensah in the death of Alvin Cole. - https://twitter.com/WUWMradio/status/1313962142673100801
+DAY 133 - 15:40 PDT - Milwaukee WI - protesters marching onto the freeway after ignoring a 4-car cop line https://twitter.com/elliothughes12/status/1313971788498505729
+DAY 133 - 15:42 PDT - Milwaukee WI - arrest? Riot cops run behind the march onto the freewy
+DAY 133 - 15:46 PDT - Milwaukee WI - Cops declare unlawful assembly, but out of reach for the protesters to hear
+DAY 133 - 15:55 PDT - Milwaukee WI - protesters avoid confrontation by moving off the freeway at the next ramp. cops have badge numbers and names covered up
+DAY 133 - 16:11 PDT - Milwaukee WI - protesters now marching through residential area, followed by a caravan of support cars
+^https://twitter.com/BGOnTheScene/status/1313988667698900992
+DAY 133 - 16:30 PDT - Salt Lake City, UT - (Pics - Protests gathered all around the city as the Vice Presidential Debate is held later this evening. https://twitter.com/EnriqueLimon/status/1313980420795498496?s=20
+DAY 133 - 16:30 PDT - Milwaukee WI - (Video - Aerial footage of protesters marching alongside vehicles)
+^https://twitter.com/ABC/status/1313985487317667840?s=20
+DAY 133 - 16:45 PDT - Milwaukee WI - Protesters marched to 35th and North, well over two miles now.
+^https://twitter.com/compujeramey/status/1313988828403847175
+DAY 133 - 17:20 PDT - Minneapolis, MN - Protesters still gathered in the streets after Derek Chauvin's release from jail earlier today. https://twitter.com/UR_Ninja/status/1313997843288543237?s=20
+DAY 133 - 17:25 PDT - Milwaukee WI - Protesters still marching in the streets alongside vehicles.
+DAY 133 - 17:25 PDT - Chicago, IL - Protesters continue marching in the streets.
+DAY 133 - 17:25 PDT - Los Angeles, CA - Group of about 70 protests gathered near the US DOS in support of Armenia.
+^https://twitter.com/rise_images/status/1313989391275094016?s=20
+DAY 133 - 17:30 PDT - Milwaukee, WI - Protesters now at 50th & Center, nearing Wauwatosa, where a  curfew is in effect.
+^https://twitter.com/compujeramey/status/1314000522811236353?s=20
+DAY 133 - 17:50 PDT - Salt Lake City, UT - Counter Protestors arguing with Protestors
+DAY 133 - 17:55 PDT - Salt Lake City, UT - Police arrive to separate groups
+DAY 133 - 18:42 PDT - Milwaukee, WI - march has reached cop line
+DAY 133 - 18:45 PDT - Milwaukee, WI - LRAD announces "disperse and go home". Unlawful assembly declared
+^https://twitter.com/compujeramey/status/1314018374121328640
+^https://twitter.com/elliothughes12/status/1314016929426833408
+DAY 133 - 18:45 PDT -Salt Lake City, UT - Protesters move back toward the University.
+^https://twitter.com/MaxGeopolitics/status/1314018686886264833
+DAY 133 - 18:45 PDT - Milwaukee, WI - Bearcat with siren following protesters
+DAY 133 - 18:54 PDT - Salt Lake City, UT -  Arrest made (unclear what for)
+DAY 133 - 19:16 PDT - Milwaukee, WI - teargas and pepperballs deployed
+^https://twitter.com/RicoReporting/status/1314027504089341952?s=19
+DAY 133 - 19:18 PDT - Milwaukee, WI (Tosa) - Protesters retreating. Gas continues to flow.
+^https://twitter.com/compujeramey/status/1314027544543465474?s=20
+DAY 133 - 19:30 PDT - Salt Lake City, UT - Heavy crowd still gathered mostly trump supporters and PBs.
+^https://twitter.com/realblairnelson/status/1314041687442944001?s=19
+^https://twitter.com/BGOnTheScene/status/1314029860222885890?s=09 + https://twitter.com/BGOnTheScene/status/1314044361005555712?s=09
+^https://twitter.com/compujeramey/status/1314032774819581953?s=19
+^https://twitter.com/tmj4/status/1314035157863739392?s=19
+^https://twitter.com/realblairnelson/status/1314037126120509441?s=19
+^https://twitter.com/BGOnTheScene/status/1314040372193038337?s=19 someone brandishes gun
+DAY 133 - 20:29 PDT - Minneapolis, MN - Officers moving up police line. LRAD heard saying 'leave the area'.
+DAY 133 - 20:30 PDT - Minneapolis, MN - State officers announce themselves on the LRAD. Again demand protesters to 'leave the area'. Unlawful assembly declared.
+DAY 133 - 20:35 PDT - Minneapolis, MN - LRAD alarmed. State patrol announces protesters are violating the unlawful assembly order.
+DAY 133 - 20:36 PDT - Minneapolis, MN - Officers slowly move up their line to push protesters back.
+DAY 133 - 20:37 PDT - Minneapolis, MN - "You are all now under arrest" "Take a seat on the pavement now". Officers continue to push forward. Tell streamers/press to move out of the way or they will be arrested.
+^https://twitter.com/ShelbyTalcott/status/1314057323082584064?s=19
+DAY 133 - 20:38 PDT - Minneapolis, MN - Police vehicles begin to move in. Officers continue to shout that everyone is under arrest and order all people to get on the ground. Including press.
+DAY 133 - 20:42 PDT - Milwaukee, WI - the peaceful group in Tosa encounters another police line, cops line reaches onto people's front lawns
+DAY 133 - 20:43 PDT - Milwaukee, WI - Protesters kettled, Strange negotiation with trapped community leaders
+DAY 133 - 20:46 PDT - Milwaukee, WI - Community outreach folk allowed to leave in MN, marked press allowed to leave
+DAY 133 - 20:46 PDT - Milwaukee, WI - Unicorn riot (press) being told to sit down in MN, but eventually let go
+DAY 133 - 20:47 PDT - Milwaukee, WI - teargas on peaceful group in tosa, still in the residential area
+^https://twitter.com/BGOnTheScene/status/1314067726680444928
+DAY 133 - 20:54 PDT - Wawautosa, WI - Cops chase protesters, still while in the residential neighborhood.
+^https://twitter.com/KittyLists/status/1314051294944923649?s=20 
+DAY 133 - 20:55 PDT - Wawautosa, WI - "Black Lives Matter" tagged onto a U.S. Bank.
+^https://twitter.com/BGOnTheScene/status/1314051777336168457?s=20
+Day 133 - 21:23 PDT - Minneapolis MN - More arrests. Appears to be ambushing.
+Day 133 - 21:23 PDT - Minneapolis MN - Car was trying to leave and go home. Cops stopped the vehicle and pull everyone out of the car.
+Day 133 - 21:24 PDT - Minneapolis MN - Police detain NLG members.
+DAY 133 - 21:27 PDT - Portland, OR - Protesters gather in the street and listen to speaker.
+DAY 133 - 23:20 PDT - Seattle, WA - BLM protesters marching towards Broadway
+DAY 134 - 16:00 PDT - St. Paul, MN - "Secret March: Derek Chauvin must be locked up": A highly-organized protest/demonstration is taking place.
+^Pics: https://twitter.com/WomensMarchMN/status/1314337527155822593?s=20
+^More pics: "Hundreds have gathered in St. Paul, including many families who've had their loved ones killed by Minnesota police, for a funeral/demonstration."https://twitter.com/UR_Ninja/status/1314337826104897536?s=20
+^Vid: Protesters are holding signs in the form of tombstones with the names of people who have lost their lives to police violence or during incarceration.https://twitter.com/bymyelf/status/1314341194286202880?s=20
+^"Secret March: Derek Chauvin must be locked up"
+^Protesters march in the street. Some are also carrying caskets and body bags, symbolizing those that have been lost.
+^Pics: https://twitter.com/CrimeWatchMpls/status/1314343598385696771?s=20
+^https://twitter.com/millcitycitizen/status/1314346865807294465?s=20
+DAY 134 - 16:24 PDT - Minneapolis MN - Protesters gather at capitol. Indigenous people drumming and dancing.
 `;
 
 let object = {}; // root object
@@ -2985,7 +3204,7 @@ let lastObject = null; // last object for ^ that "attach" to the previous root t
 data.split("\n").map(string => {
   if(!/^\^/g.test(string)) {
     let pieces = string.split('-'); // split chat lines into pieces
-    const day = pieces[0]; 
+    const day = pieces[0].toLowerCase(); 
     const time = pieces[1];
     const location = (pieces[3] === undefined) ? null : pieces[2]; // if no location is provided this *should* catch it and set it to null
     // if no location is defined we grab the text that is instead stored inside of index >=2
@@ -2997,12 +3216,12 @@ data.split("\n").map(string => {
     const key = buffer.toString("base64"); // generate base64 encode of the day for an ID
 
     if(!object[key]) { // object with key hasn't been created yet
-      object[key] = [insert]; // insert our data into the new object with generated key
+      object[key] = {events: [insert]}; // insert our data into the new object with generated key
     } else {
-      object[key].push(insert); // object with day key exists, push to it
+      object[key]['events'].push(insert); // object with day key exists, push to it
     }
 
-    lastObject = object[key][object[key].length - 1]; // set the last object to the previously added timestamp
+    lastObject = object[key]['events'][object[key]['events'].length - 1]; // set the last object to the previously added timestamp
   } else if(/^\^/g.test(string)) {
     lastObject.attachments.push(string.replace('^', '')); // if a ^ is detected, append the content to the "attachments" of the previous timestamp
   }
